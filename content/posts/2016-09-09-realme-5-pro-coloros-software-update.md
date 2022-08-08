@@ -1,0 +1,12 @@
+---
+title: 'Realme 5 Pro ColorOS Software Update Tracker [Update: A.11 update with video recording through Wide-angle lens and Dark mode]'
+date: 2019-10-23T05:25:00+01:00
+draft: false
+---
+
+![](https://images.fonearena.com/blog/wp-content/uploads/2019/09/Realme-5-Pro_fonearena-12-1024x677.jpg) realme launched the realme 5 Pro smartphone in India last month running ColorOS 6.0 realme edition on top of Android 9.0 (Pie), it was recently introduced as realme Q in China. realme doesn’t follow a fixed update frequency but the company rolls out update frequently. This post will help our readers in keeping track of ColorOS updates for realme 5 Pro, also check out our realme 5 Pro content, realme 5 Pro Unboxing and First Impressions realme 5 Pro Review: Mid-range killer? ColorOS updates rolled out for the realme 5 so far, \[Oct 23, 2019\]: realme has started rolling out RMX1971EX\_11\_A.11 update with October 2019 security patch. The update brings video recording through Wide-angle lens and Dark mode features to the device along with minor bug fixes. \[Oct 18, 2019\]: realme releases Android Pie based kernel source codes for realme 5 Pro and users can now unlock the bootloader. \[Sep 17, 2019\]: realme has started rolling out RMX1971EX\_11\_A.09 update with Aug 2019 security patch. The update weighs around 341MB in size and brings an improved sharpness in the rear main camera along with improved system stability. \[Sep 13, 2019\]: realme 5 Pro will be upgraded to Android 10 in Q1 2020, confirms realme. \[Aug 26, 2019\]: ...
+
+[![](http://feeds.feedburner.com/~ff/fone-arena?d=yIl2AUoC8zA)](http://feeds.feedburner.com/~ff/fone-arena?a=S26H9EeKuxU:OGqyIsy8joE:yIl2AUoC8zA) [![](http://feeds.feedburner.com/~ff/fone-arena?i=S26H9EeKuxU:OGqyIsy8joE:V_sGLiPBpWU)](http://feeds.feedburner.com/~ff/fone-arena?a=S26H9EeKuxU:OGqyIsy8joE:V_sGLiPBpWU) [![](http://feeds.feedburner.com/~ff/fone-arena?i=S26H9EeKuxU:OGqyIsy8joE:D7DqB2pKExk)](http://feeds.feedburner.com/~ff/fone-arena?a=S26H9EeKuxU:OGqyIsy8joE:D7DqB2pKExk) [![](http://feeds.feedburner.com/~ff/fone-arena?d=7Q72WNTAKBA)](http://feeds.feedburner.com/~ff/fone-arena?a=S26H9EeKuxU:OGqyIsy8joE:7Q72WNTAKBA)
+
+![](http://feeds.feedburner.com/~r/fone-arena/~4/S26H9EeKuxU)  
+[Read Here»](https://www.fonearena.com/blog/292198/realme-5-pro-coloros-software-update-tracker.html)

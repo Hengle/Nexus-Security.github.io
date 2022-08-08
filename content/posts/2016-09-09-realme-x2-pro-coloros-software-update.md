@@ -1,0 +1,12 @@
+---
+title: 'Realme X2 Pro ColorOS Software Update Tracker [Update: A.07 update with camera optimizations]'
+date: 2019-11-29T06:51:00+01:00
+draft: false
+---
+
+![](https://images.fonearena.com/blog/wp-content/uploads/2019/11/realme-X2-Pro_fonearena-13-1024x574.jpg) realme recently launched the realme X2 Pro smartphone in India running ColorOS 6 on top of Android 9.0 (Pie). realme doesn’t follow a fixed update frequency but the company rolls out updates frequently. This post will help our readers in keeping track of ColorOS updates for realme X2 Pro. \[Nov 29, 2019\]: realme has started rolling out RMX1931EX\_11\_A.07 that brings Camera optimizations and fixes minor bugs.  \[Download Link\] \[Nov 28, 2019\]: realme releases Android 9.0 based Kernel Source codes for realme X2 Pro. \[Nov 25, 2019\]: realme announces ColorOS 7 Beta testing for realme X2 Pro. The realme X2 Pro comes in Lunar White and Neptune Blue colors, is priced at  Rs. 29,999 for the 8GB RAM with 128GB storage and the top-end 12GB RAM with 256GB storage version costs Rs. 33,999. The Master Edition in Red Brick and Concrete colors is priced at Rs. 34,999 for the 12GB RAM with 256GB storage version and will go on sale during Christmas. Changelogs, Camera ● Optimized nightscape quality of rear camera ● Optimized camera quality of HDR Display ● Optimized 90Hz display logic System ●Fixed partial known issues, improved system stability
+
+[![](http://feeds.feedburner.com/~ff/fone-arena?d=yIl2AUoC8zA)](http://feeds.feedburner.com/~ff/fone-arena?a=tQJbyuO6kho:3qE3fATtj3g:yIl2AUoC8zA) [![](http://feeds.feedburner.com/~ff/fone-arena?i=tQJbyuO6kho:3qE3fATtj3g:V_sGLiPBpWU)](http://feeds.feedburner.com/~ff/fone-arena?a=tQJbyuO6kho:3qE3fATtj3g:V_sGLiPBpWU) [![](http://feeds.feedburner.com/~ff/fone-arena?i=tQJbyuO6kho:3qE3fATtj3g:D7DqB2pKExk)](http://feeds.feedburner.com/~ff/fone-arena?a=tQJbyuO6kho:3qE3fATtj3g:D7DqB2pKExk) [![](http://feeds.feedburner.com/~ff/fone-arena?d=7Q72WNTAKBA)](http://feeds.feedburner.com/~ff/fone-arena?a=tQJbyuO6kho:3qE3fATtj3g:7Q72WNTAKBA)
+
+![](http://feeds.feedburner.com/~r/fone-arena/~4/tQJbyuO6kho)  
+[Read Here»](https://www.fonearena.com/blog/299294/realme-x2-pro-coloros-software-update-tracker.html)

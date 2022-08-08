@@ -1,0 +1,12 @@
+---
+title: 'POCO F1 MIUI Software Update Tracker [Update: MIUI 11 Stable Beta roll out begins]'
+date: 2019-10-28T14:58:00+01:00
+draft: false
+---
+
+![](https://images.fonearena.com/blog/wp-content/uploads/2018/11/POCO-F1-Red_fonearena-1-1024x794.jpg) Xiaomi's sub-brand POCO launched the POCO F1 smartphone in India back in August 2018 running MIUI 9.6 Global Stable on top of Android 8.1 (Oreo). Xiaomi doesn’t follow any fixed update frequency for the MIUI Global Stable ROM but on average, the Global Stable ROM is updated once in 20-40 days. This post will help our readers in keeping track of MIUI updates for POCO F1, also check out our POCO F1 content, POCO F1 Hands-on and First Impressions POCO F1 Rosso Red Edition Photo Gallery POCO F1 Review: Deal of the Century How to Install Oxygen OS on POCO F1 MIUI updates rolled out for the POCO F1 so far: \[Oct 28, 2019\]: Xiaomi has started rolling out MIUI 11 Stable 11.05.0.PEJMIXM for select users. The update brings MIUI 11 features such as New Minimalistic Design, Quick Replies, New Dynamic Sound Effects, Mi Share, Floating Calculator, Update Mi File Manager, Steps Trackers and more to the devices, check out this post to learn more about MIUI 11 features. \[Download Link\] \[Sep 21, 2019\]: Xiaomi has started rolling out MIUI 10.3.8.0.PEJMIXM update. The update is 158MB in size, includes Android security patch for September, 2019. \[Download Link\] \[Aug 19, 2019\]: Xiaomi has started rolling out MIUI ...
+
+[![](http://feeds.feedburner.com/~ff/fone-arena?d=yIl2AUoC8zA)](http://feeds.feedburner.com/~ff/fone-arena?a=6QFKdQ1NsoI:hDQfwZmGaNs:yIl2AUoC8zA) [![](http://feeds.feedburner.com/~ff/fone-arena?i=6QFKdQ1NsoI:hDQfwZmGaNs:V_sGLiPBpWU)](http://feeds.feedburner.com/~ff/fone-arena?a=6QFKdQ1NsoI:hDQfwZmGaNs:V_sGLiPBpWU) [![](http://feeds.feedburner.com/~ff/fone-arena?i=6QFKdQ1NsoI:hDQfwZmGaNs:D7DqB2pKExk)](http://feeds.feedburner.com/~ff/fone-arena?a=6QFKdQ1NsoI:hDQfwZmGaNs:D7DqB2pKExk) [![](http://feeds.feedburner.com/~ff/fone-arena?d=7Q72WNTAKBA)](http://feeds.feedburner.com/~ff/fone-arena?a=6QFKdQ1NsoI:hDQfwZmGaNs:7Q72WNTAKBA)
+
+![](http://feeds.feedburner.com/~r/fone-arena/~4/6QFKdQ1NsoI)  
+[Read Here»](https://www.fonearena.com/blog/280625/poco-f1-miui-software-update-tracker.html)
