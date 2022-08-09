@@ -1,14 +1,14 @@
 ---
-title: 'Big Hunter 2.9.5 ÐOD (Ads Removed) APK For Android'
+title: 'Big Hunter 2.9.5 ÐOD (Ads Removed) APK For Android'
 date: 2019-12-28T02:00:00+01:00
 draft: false
 ---
 
-![Big Hunter 2.9.5 ÐOD (Ads Removed) APK For Android](https://i2.wp.com/apkhome.net/wp-content/uploads/2019/11/Big-Hunter-2.9.5-ÐOD-Ads-Removed.png "Big Hunter 2.9.5 ÐOD (Ads Removed) APK For Android")
+![Big Hunter 2.9.5 ÐOD (Ads Removed) APK For Android](https://i2.wp.com/apkhome.net/wp-content/uploads/2019/11/Big-Hunter-2.9.5-ÐOD-Ads-Removed.png "Big Hunter 2.9.5 ÐOD (Ads Removed) APK For Android")
 
   
 
-Big Hunter 2.9.5 ÐOD (Ads Removed) APK For Android
+Big Hunter 2.9.5 ÐOD (Ads Removed) APK For Android
 
 An intense hunting game of hungry tribes!  
 Hunt primitive gigantic animals!
@@ -35,7 +35,7 @@ Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6
 **MOD TYPE: Ads Removed  
 **
 
-Download Big Hunter 2.9.5 ÐOD (Ads Removed) APK For Android
+Download Big Hunter 2.9.5 ÐOD (Ads Removed) APK For Android
 ============================================================
 
 Additional Information

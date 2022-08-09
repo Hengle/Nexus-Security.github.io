@@ -10,7 +10,7 @@ draft: false
 
 Zen 3.5.1 Subscribed APK For Android
 
-If you want to live a happier, healthier and more balanced emotional life, Zen is the perfect app for you. On Googles list of Best Apps of 2016, Zen offers a diverse and ever-growing amount of content and features.  
+If you want to live a happier, healthier and more balanced emotional life, Zen is the perfect app for you. On Googles list of Best Apps of 2016, Zen offers a diverse and ever-growing amount of content and features.  
 **Characteristics:**  
 \* New weekly guided meditations for relaxation, deep sleep, improved mood, anxiety relief, stress reduction, focus at work and much more.  
 \* Audios and videos for relaxation and meditation.  

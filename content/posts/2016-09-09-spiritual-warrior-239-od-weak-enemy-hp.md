@@ -1,21 +1,21 @@
 ---
-title: 'Spiritual warrior 2.3.9 ÐOD (Weak Enemy HP + AutoBattle) APK For Android'
+title: 'Spiritual warrior 2.3.9 ÐOD (Weak Enemy HP + AutoBattle) APK For Android'
 date: 2020-01-08T00:00:00+01:00
 draft: false
 ---
 
-![Spiritual warrior 2.3.9 ÐOD (Weak Enemy HP + AutoBattle) APK For Android](https://i1.wp.com/apkhome.net/wp-content/uploads/2020/01/Spiritual-warrior-2.3.9-ÐOD-Weak-Enemy-HP-AutoBattle.png "Spiritual warrior 2.3.9 ÐOD (Weak Enemy HP + AutoBattle) APK For Android")
+![Spiritual warrior 2.3.9 ÐOD (Weak Enemy HP + AutoBattle) APK For Android](https://i1.wp.com/apkhome.net/wp-content/uploads/2020/01/Spiritual-warrior-2.3.9-ÐOD-Weak-Enemy-HP-AutoBattle.png "Spiritual warrior 2.3.9 ÐOD (Weak Enemy HP + AutoBattle) APK For Android")
 
   
 
-Spiritual warrior 2.3.9 ÐOD (Weak Enemy HP + AutoBattle) APK For Android
+Spiritual warrior 2.3.9 ÐOD (Weak Enemy HP + AutoBattle) APK For Android
 
 New sense RPG that fights with words! //  
 1.5 years anniversary thanks to everyone!  
 Google Play Best of 2018 Game Creative Category Winner!
 
 \* What is Kotodaman?  
-A new type of RPG that fights with words that have exceeded 8 million downloads!  
+A new type of RPG that fights with words that have exceeded 8 million downloads!  
 Combine the character spirit "Kotodaman" to create "words"!  
 Fun multiplayer with friends as well as friends!
 
@@ -37,7 +37,7 @@ Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6
 
 **MOD TYPE: Weak Enemy HP + AutoBattle**
 
-Download Spiritual warrior 2.3.9 ÐOD (Weak Enemy HP + AutoBattle) APK For Android
+Download Spiritual warrior 2.3.9 ÐOD (Weak Enemy HP + AutoBattle) APK For Android
 ==================================================================================
 
 Additional Information

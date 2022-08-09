@@ -33,7 +33,7 @@ Download Xabber VIP 2.6.6.645 Paid APK For Android
 Additional Information
 ----------------------
 
-**Developer :** redsolution OÃ
+**Developer :** redsolution OÃ
 
 **Version :** 2.6.6.645
 

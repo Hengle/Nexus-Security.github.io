@@ -17,7 +17,7 @@ You've spent years developing technology to deal with the destruction of the pla
 Doomsday Clicker is the ultimate destruction game: meet a host of crazy characters before destroying them all!
 
 **Features:**  
-\* Collect bonuses when unwanted visitors knock on the door of your shelter  
+\* Collect bonuses when unwanted visitors knock on the door of your shelter  
 \* Discover tons of incongruous surprises!  
 \* Watch the numbers grow again and again!  
 \* Visit the SUPERCHARGEUR, a wheel of fortune that offers you temporary productivity gains!  

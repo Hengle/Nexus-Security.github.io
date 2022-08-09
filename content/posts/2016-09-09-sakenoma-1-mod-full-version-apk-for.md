@@ -25,7 +25,7 @@ Before that happens, drink alcohol and restore your vitality!
 But be careful not to drink too much.
 
 \* Standing enemy  
-Countless disrupters will motivate you wherever you go.  
+Countless disrupters will motivate you wherever you go.  
 Just hit the spoke, suicide and habits.  
 It is dangerous to stick to it! Look at the situation and take action.
 

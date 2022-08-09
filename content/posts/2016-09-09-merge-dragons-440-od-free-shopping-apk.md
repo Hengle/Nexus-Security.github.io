@@ -1,14 +1,14 @@
 ---
-title: 'Merge Dragons 4.4.0 ÐOD (Free Shopping)   APK For Android'
+title: 'Merge Dragons 4.4.0 ÐOD (Free Shopping)   APK For Android'
 date: 2019-12-28T09:00:00+01:00
 draft: false
 ---
 
-![Merge Dragons 4.4.0 ÐOD (Free Shopping)   APK For Android](https://i0.wp.com/apkhome.net/wp-content/uploads/2019/11/Merge-Dragons-1.png "Merge Dragons 4.4.0 ÐOD (Free Shopping)   APK For Android")
+![Merge Dragons 4.4.0 ÐOD (Free Shopping)   APK For Android](https://i0.wp.com/apkhome.net/wp-content/uploads/2019/11/Merge-Dragons-1.png "Merge Dragons 4.4.0 ÐOD (Free Shopping)   APK For Android")
 
   
 
-Merge Dragons 4.4.0 ÐOD (Free Shopping)   APK For Android
+Merge Dragons 4.4.0 ÐOD (Free Shopping)   APK For Android
 
 Celebrate Halloween with our limited time updates
 
@@ -31,7 +31,7 @@ Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6
 
 **MOD TYPE: Free Shopping**
 
-Download Merge Dragons 4.4.0 ÐOD (Free Shopping)   APK For Android
+Download Merge Dragons 4.4.0 ÐOD (Free Shopping)   APK For Android
 ====================================================================
 
 Additional Information

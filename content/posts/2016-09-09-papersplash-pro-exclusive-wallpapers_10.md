@@ -14,8 +14,8 @@ Browse over 150 beautiful handcrafted wallpapers as well as Unsplash wallpapers 
 **Characteristics:**  
 \* Minimal design  
 \* No ads or other nonsense  
-\* Wallpaper of the day section with a wallpaper organized daily  
-\* Featured section with high quality wallpapers  
+\* Wallpaper of the day section with a wallpaper organized daily  
+\* Featured section with high quality wallpapers  
 \* "Research" for your specific taste  
 \* "Categories" to sort wallpapers to your liking (available in the search menu)  
 \* "Color categories" to sort the wallpapers after your color preference (available in the search menu)  

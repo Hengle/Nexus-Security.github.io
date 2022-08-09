@@ -31,7 +31,7 @@ Download Audiobooks online 1.42 AdFree APK For Android
 Additional Information
 ----------------------
 
-**Developer :** ÃÃ¸Ã' Ã'Ã°Ã·Ã'Ã°Ã±Ã¾Ã'Ã¾Ãº
+**Developer :** ÃÃ¸Ã' Ã'Ã°Ã·Ã'Ã°Ã±Ã¾Ã'Ã¾Ãº
 
 **Version :** 1.42
 

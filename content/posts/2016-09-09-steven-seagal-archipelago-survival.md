@@ -1,14 +1,14 @@
 ---
-title: 'Steven Seagal''s Archipelago Survival 0.0.181 ÐOD (Unlimited gold coins + More) APK For Android'
+title: 'Steven Seagal''s Archipelago Survival 0.0.181 ÐOD (Unlimited gold coins + More) APK For Android'
 date: 2019-12-14T12:14:00+01:00
 draft: false
 ---
 
-![Steven Seagal](https://i2.wp.com/apkhome.net/wp-content/uploads/2019/11/Steven-Seagals-Archipelago-Survival-0.0.181-ÐOD-Unlimited-gold-coins-More.png "Steven Seagal")
+![Steven Seagal](https://i2.wp.com/apkhome.net/wp-content/uploads/2019/11/Steven-Seagals-Archipelago-Survival-0.0.181-ÐOD-Unlimited-gold-coins-More.png "Steven Seagal")
 
   
 
-Steven Seagal's Archipelago Survival 0.0.181 ÐOD (Unlimited gold coins + More) APK For Android
+Steven Seagal's Archipelago Survival 0.0.181 ÐOD (Unlimited gold coins + More) APK For Android
 
 The Survival Archipelago of Steven Seagal is a new and exciting survival game with advanced RPG elements. Find yourself on "paradise" tropical islands, where powerful secret societies and powerful terrorist organizations conduct experiments that can radically change the history of humanity. Stand by their side with a special agent, known as Mr. S, and stop the imminent global catastrophe!
 
@@ -22,7 +22,7 @@ Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6
 **MOD TYPE: Unlimited gold coins + More  
 **
 
-Download Steven Seagal's Archipelago Survival 0.0.181 ÐOD (Unlimited gold coins + More) APK For Android
+Download Steven Seagal's Archipelago Survival 0.0.181 ÐOD (Unlimited gold coins + More) APK For Android
 ========================================================================================================
 
 Additional Information

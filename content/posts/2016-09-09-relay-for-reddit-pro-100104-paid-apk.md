@@ -10,7 +10,7 @@ draft: false
 
 Relay for reddit Pro 10.0.104 Paid APK For Android
 
-Relay is a fun new way to browse the Reddit news and entertainment site. Whether you are an occasional prowler, an experienced user or even a moderator, Relay makes using reddit a pleasure.  
+Relay is a fun new way to browse the Reddit news and entertainment site. Whether you are an occasional prowler, an experienced user or even a moderator, Relay makes using reddit a pleasure.  
 **Characteristics:**  
 \* Beautiful and intuitive interface, inspired by Material Design.  
 \* Great entertainment enhances the experience.  

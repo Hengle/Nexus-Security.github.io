@@ -12,11 +12,11 @@ Leos Fortune 1.0.6 MOD + DATA (full version) APK For Android
 
 Leos Fortune is an award-winning adventure platformer in which you have to track down the mysterious thief who stole your gold. Beautifully illustrated levels bring Leo and his story to life in this epic adventure.
 
-\*Leo's Fortune is one of the most dazzling platform games I have ever seen, and its graphics rival those of the most recent consoles. "- CNET
+\*Leo's Fortune is one of the most dazzling platform games I have ever seen, and its graphics rival those of the most recent consoles. "- CNET
 
-\*Leo's Fortune is a masterpiece. 100 out of 100 "- Duuro.net 100%
+\*Leo's Fortune is a masterpiece. 100 out of 100 "- Duuro.net 100%
 
-\*Leo's Fortune is a great platform game¦ its controls fit the shelves perfectly, and the design is beautifully smart overall. "- Joystiq
+\*Leo's Fortune is a great platform game¦ its controls fit the shelves perfectly, and the design is beautifully smart overall. "- Joystiq
 
 \*"I'm going home to find out that my gold has been stolen!" For strange reasons, the thief dropped my pieces like bread crumbs through the woods. Despite the dangerousness of the situation, I must follow the trail of my treasure. No matter what awaits me, I have to find my fortune. "-Leopold
 

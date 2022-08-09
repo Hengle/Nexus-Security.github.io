@@ -1,14 +1,14 @@
 ---
-title: 'Evergarden 1.1.3 ÐOD (Unlocked) APK For Android'
+title: 'Evergarden 1.1.3 ÐOD (Unlocked) APK For Android'
 date: 2019-12-19T04:14:00+01:00
 draft: false
 ---
 
-![Evergarden 1.1.3 ÐOD (Unlocked) APK For Android](https://i0.wp.com/apkhome.net/wp-content/uploads/2019/11/Evergarden-1.1.3-ÐOD-Unlocked.png "Evergarden 1.1.3 ÐOD (Unlocked) APK For Android")
+![Evergarden 1.1.3 ÐOD (Unlocked) APK For Android](https://i0.wp.com/apkhome.net/wp-content/uploads/2019/11/Evergarden-1.1.3-ÐOD-Unlocked.png "Evergarden 1.1.3 ÐOD (Unlocked) APK For Android")
 
   
 
-Evergarden 1.1.3 ÐOD (Unlocked) APK For Android
+Evergarden 1.1.3 ÐOD (Unlocked) APK For Android
 
 Lose yourself in an endless puzzle game, in the middle of a mysterious forest world. Transform your garden by combining plants into new and strange shapes and discover deeply hidden secrets as you get absorbed in the soothing rhythm of the game. Stroll through the forest and bring it back to life with it. Help Fen, your creature guide. Evergarden may be familiar at first, but you will discover that it's not a game you've played before.
 
@@ -20,7 +20,7 @@ Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6
 **MOD TYPE: Unlocked  
 **
 
-Download Evergarden 1.1.3 ÐOD (Unlocked) APK For Android
+Download Evergarden 1.1.3 ÐOD (Unlocked) APK For Android
 =========================================================
 
 Additional Information

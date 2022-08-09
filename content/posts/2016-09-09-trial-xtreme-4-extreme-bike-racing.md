@@ -22,7 +22,7 @@ Each level will test not only your cycling skills, but also your strategic think
 The craziest 3D graphics you've ever seen combine with perfectly designed levels to form an insane driving experience.
 
 \* UPGRADE FOR SUCCESS  
-Improve your cycling skills; improve your on track performance and the appearance of your bike with the most hardcore equipment available.
+Improve your cycling skills; improve your on track performance and the appearance of your bike with the most hardcore equipment available.
 
 SWAG MODEM  
 Enhance your pilot with over 200 items of awesome personalization equipment and match your style to your abilities.

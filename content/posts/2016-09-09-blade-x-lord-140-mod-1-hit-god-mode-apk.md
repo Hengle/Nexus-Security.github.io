@@ -52,7 +52,7 @@ Download Blade X Lord 1.4.0 MOD (1 Hit + God Mode) APK For Android
 Additional Information
 ----------------------
 
-**Developer :** Ã¦ ªÃ¥¼Ã¤¼Ã§¤¾ Ã£¢Ã£Ã£ªÃ£Ã£Ã£
+**Developer :** Ã¦ ªÃ¥¼Ã¤¼Ã§¤¾ Ã£¢Ã£Ã£ªÃ£Ã£Ã£
 
 **Version :** 1.4.0
 

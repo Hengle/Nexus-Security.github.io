@@ -19,9 +19,9 @@ Easily Drag, Zoom & Pan
 
 New levels are unlocked as you solve the previous ones. You can complete the whole game only if you earn all the stars. But you can buy an IAP that removes this restriction.
 
-Euclidea has been shown to help with imagination, intuition, and logic, all wonderful skills to develop. " appPicker
+Euclidea has been shown to help with imagination, intuition, and logic, all wonderful skills to develop. " appPicker
 
-Euclidea is an absolute joy to play¦its a game that every math student should have and, in an ideal world, every adult should like. " Non-Trivial Games
+Euclidea is an absolute joy to play¦its a game that every math student should have and, in an ideal world, every adult should like. " Non-Trivial Games
 
 \*About Euclidea  
 Euclidea is a brilliantly original way to learn about, explore and have fun with Euclidian Constructions! Your task is to solve interesting challenges by building geometric constructions with a straightedge and compass. If you design the most elegantly simple solutions in the least number of moves, youll earn the highest scores. Solutions are scored in lines (L) and elementary Euclidean constructions (E).

@@ -13,7 +13,7 @@ Deadman Diaries 2.1.5 MOD (full version) APK For Android
 \* An innovative playbook thriller in the form of a diary  
 \* Readers are trying to save the main character but \*\*\* it's not that easy
 
-Deadman Diaries is an introduction to game books (better known as Choose Your Adventure), so the game was designed to be quick and easy to read\*
+Deadman Diaries is an introduction to game books (better known as Choose Your Adventure), so the game was designed to be quick and easy to read\*
 
 In the form of a diary, readers are immersed in the life of John Riggs, a bank employee who has to repay a gambling debt that will lead him to different illegal and often fatal situations\*
 

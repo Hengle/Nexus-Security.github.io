@@ -10,7 +10,7 @@ draft: false
 
 Looney Tunes World of Mayhem Action RPG 17.1.0 MOD (No delay in skills) APK For Android
 
-Join Bugs Bunny, Daffy Duck, Marvin the Martian and all the classic toons to create the biggest team of toons in Looney Tunes ¢ World of Mayhem! Collect cartoon characters like Tweety Bird, Taz, Road Runner and more to wage wacky battles in a vibrant Looney Tunes ¢ world.
+Join Bugs Bunny, Daffy Duck, Marvin the Martian and all the classic toons to create the biggest team of toons in Looney Tunes ¢ World of Mayhem! Collect cartoon characters like Tweety Bird, Taz, Road Runner and more to wage wacky battles in a vibrant Looney Tunes ¢ world.
 
 Collect your favorite characters and discover their unique and hilarious fighting abilities. The characters in Road Runner and Wile E. Coyote in Sylvester and Tweety in Porky Pig each have unique abilities and hilarious attacks. Collect all the classic Looney Tunes ¢ cartoon characters in this epic action RPG.
 

@@ -1,14 +1,14 @@
 ---
-title: 'Beggar Life 6.2.5 ÐOD (High Gold Click) APK For Android'
+title: 'Beggar Life 6.2.5 ÐOD (High Gold Click) APK For Android'
 date: 2020-02-01T23:00:00+01:00
 draft: false
 ---
 
-![Beggar Life 6.2.5 ÐOD (High Gold Click) APK For Android](https://i1.wp.com/apkhome.net/wp-content/uploads/2020/02/Beggar-Life-6.2.5-ÐOD-High-Gold-Click.png "Beggar Life 6.2.5 ÐOD (High Gold Click) APK For Android")
+![Beggar Life 6.2.5 ÐOD (High Gold Click) APK For Android](https://i1.wp.com/apkhome.net/wp-content/uploads/2020/02/Beggar-Life-6.2.5-ÐOD-High-Gold-Click.png "Beggar Life 6.2.5 ÐOD (High Gold Click) APK For Android")
 
   
 
-Beggar Life 6.2.5 ÐOD (High Gold Click) APK For Android
+Beggar Life 6.2.5 ÐOD (High Gold Click) APK For Android
 
 "A slow-motion game on the theme of beggars,  
 There has never been a Click / Tap game like this beggar before!
@@ -39,7 +39,7 @@ Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6
 
 **MOD TYPE: High Gold Click**
 
-Download Beggar Life 6.2.5 ÐOD (High Gold Click) APK For Android
+Download Beggar Life 6.2.5 ÐOD (High Gold Click) APK For Android
 =================================================================
 
 Additional Information

@@ -41,7 +41,7 @@ Download Astral Stairways 4.0.1 MOD (God Mode + Weak Enemies) APK For Android
 Additional Information
 ----------------------
 
-**Developer :** Ã§«Ã§Ã¥µÃ¦Ã¦Ã©Ã¥¬Ã¥¸
+**Developer :** Ã§«Ã§Ã¥µÃ¦Ã¦Ã©Ã¥¬Ã¥¸
 
 **Version :** 4.0.1
 

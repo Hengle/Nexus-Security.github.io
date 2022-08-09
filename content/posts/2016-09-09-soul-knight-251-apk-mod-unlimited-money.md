@@ -10,7 +10,7 @@ draft: false
 
 Soul Knight 2.5.1 APK + MOD (Unlimited Money) APK For Android
 
-At a time when guns and swords coexist, the magic stone maintaining the balance of the world is stolen by a developed extraterrestrial race. The fate of the world hangs by a thread. It all depends on you and your ability to recover the stone ... "
+At a time when guns and swords coexist, the magic stone maintaining the balance of the world is stolen by a developed extraterrestrial race. The fate of the world hangs by a thread. It all depends on you and your ability to recover the stone ... "
 
 Well ! No more blah-blah. And spray alien minions!
 

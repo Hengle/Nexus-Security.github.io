@@ -1,14 +1,14 @@
 ---
-title: 'Smiling X Corp Escape from the Horror Studio 1.4.1 ÐOD (immortality) APK For Android'
+title: 'Smiling X Corp Escape from the Horror Studio 1.4.1 ÐOD (immortality) APK For Android'
 date: 2020-02-01T22:56:00+01:00
 draft: false
 ---
 
-![Smiling X Corp Escape from the Horror Studio 1.4.1 ÐOD (immortality) APK For Android](https://i2.wp.com/apkhome.net/wp-content/uploads/2020/02/Smiling-X-Corp-Escape-from-the-Horror-Studio-1.4.1-ÐOD-immortality.jpg "Smiling X Corp Escape from the Horror Studio 1.4.1 ÐOD (immortality) APK For Android")
+![Smiling X Corp Escape from the Horror Studio 1.4.1 ÐOD (immortality) APK For Android](https://i2.wp.com/apkhome.net/wp-content/uploads/2020/02/Smiling-X-Corp-Escape-from-the-Horror-Studio-1.4.1-ÐOD-immortality.jpg "Smiling X Corp Escape from the Horror Studio 1.4.1 ÐOD (immortality) APK For Android")
 
   
 
-Smiling X Corp Escape from the Horror Studio 1.4.1 ÐOD (immortality) APK For Android
+Smiling X Corp Escape from the Horror Studio 1.4.1 ÐOD (immortality) APK For Android
 
 Since childhood, you started playing video games, scary games and survival games. You like to kill zombies and evil enemies to survive.
 
@@ -26,7 +26,7 @@ Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6
 **MOD TYPE: immortality  
 **
 
-Download Smiling X Corp Escape from the Horror Studio 1.4.1 ÐOD (immortality) APK For Android
+Download Smiling X Corp Escape from the Horror Studio 1.4.1 ÐOD (immortality) APK For Android
 ==============================================================================================
 
 Additional Information

@@ -1,14 +1,14 @@
 ---
-title: 'Age of Magic 1.17 ÐOD (Always Win + Instant Kill) APK For Android'
+title: 'Age of Magic 1.17 ÐOD (Always Win + Instant Kill) APK For Android'
 date: 2019-12-14T12:00:00+01:00
 draft: false
 ---
 
-![Age of Magic 1.17 ÐOD (Always Win + Instant Kill) APK For Android](https://i1.wp.com/apkhome.net/wp-content/uploads/2019/11/Age-of-Magic-1.17-ÐOD-Always-Win-Instant-Kill.png "Age of Magic 1.17 ÐOD (Always Win + Instant Kill) APK For Android")
+![Age of Magic 1.17 ÐOD (Always Win + Instant Kill) APK For Android](https://i1.wp.com/apkhome.net/wp-content/uploads/2019/11/Age-of-Magic-1.17-ÐOD-Always-Win-Instant-Kill.png "Age of Magic 1.17 ÐOD (Always Win + Instant Kill) APK For Android")
 
   
 
-Age of Magic 1.17 ÐOD (Always Win + Instant Kill) APK For Android
+Age of Magic 1.17 ÐOD (Always Win + Instant Kill) APK For Android
 
 Age of Magic is a new turn-based fantasy role-playing game for legions of epic heroes fighting the remnants of an ancient, magical world.
 
@@ -22,7 +22,7 @@ Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6
 **MOD TYPE: Always Win + Instant Kill  
 **
 
-Download Age of Magic 1.17 ÐOD (Always Win + Instant Kill) APK For Android
+Download Age of Magic 1.17 ÐOD (Always Win + Instant Kill) APK For Android
 ===========================================================================
 
 Additional Information

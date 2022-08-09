@@ -31,7 +31,7 @@ Download Lingvist Learn German, French, Spanish vocabulary 2.43.5 Subscription A
 Additional Information
 ----------------------
 
-**Developer :** Lingvist Technologies OÃ
+**Developer :** Lingvist Technologies OÃ
 
 **Version :** 2.43.5
 

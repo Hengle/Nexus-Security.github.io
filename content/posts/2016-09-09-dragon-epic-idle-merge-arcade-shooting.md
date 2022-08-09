@@ -1,14 +1,14 @@
 ---
-title: 'Dragon Epic Idle & Merge Arcade shooting game 1.13 ÐOD (God Mode + One Hit Kill) APK For Android'
+title: 'Dragon Epic Idle & Merge Arcade shooting game 1.13 ÐOD (God Mode + One Hit Kill) APK For Android'
 date: 2020-02-02T17:56:00+01:00
 draft: false
 ---
 
-![Dragon Epic Idle & Merge Arcade shooting game 1.13 ÐOD (God Mode + One Hit Kill) APK For Android](https://i2.wp.com/apkhome.net/wp-content/uploads/2020/02/Dragon-Epic-Idle-Merge-Arcade-shooting-game-1.13-ÐOD-God-Mode-One-Hit-Kill.png "Dragon Epic Idle & Merge Arcade shooting game 1.13 ÐOD (God Mode + One Hit Kill) APK For Android")
+![Dragon Epic Idle & Merge Arcade shooting game 1.13 ÐOD (God Mode + One Hit Kill) APK For Android](https://i2.wp.com/apkhome.net/wp-content/uploads/2020/02/Dragon-Epic-Idle-Merge-Arcade-shooting-game-1.13-ÐOD-God-Mode-One-Hit-Kill.png "Dragon Epic Idle & Merge Arcade shooting game 1.13 ÐOD (God Mode + One Hit Kill) APK For Android")
 
   
 
-Dragon Epic Idle & Merge Arcade shooting game 1.13 ÐOD (God Mode + One Hit Kill) APK For Android
+Dragon Epic Idle & Merge Arcade shooting game 1.13 ÐOD (God Mode + One Hit Kill) APK For Android
 
 In a wild mystical Viking word, the Dragonia Valley flourished. Then one day, darkest evil enemies come. The only hope of saving the world of dragonvale in your magic power to raise dragons, train them and be legendary in the dragon shooter game.
 
@@ -32,7 +32,7 @@ Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6
 
 **MOD TYPE: God Mode + One Hit Kill**
 
-Download Dragon Epic Idle & Merge Arcade shooting game 1.13 ÐOD (God Mode + One Hit Kill) APK For Android
+Download Dragon Epic Idle & Merge Arcade shooting game 1.13 ÐOD (God Mode + One Hit Kill) APK For Android
 ==========================================================================================================
 
 Additional Information

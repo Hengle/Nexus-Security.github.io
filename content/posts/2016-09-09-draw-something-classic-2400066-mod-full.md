@@ -10,7 +10,7 @@ draft: false
 
 Draw Something Classic 2.400.066 MOD (full version) APK For Android
 
-Draw Something is the Worlds Most Popular Drawing Game. Have fun with your friends and family exchanging doodle art. Sketch a perfect work of art and participate in our contests. Pick up your brush and start painting now.
+Draw Something is the Worlds Most Popular Drawing Game. Have fun with your friends and family exchanging doodle art. Sketch a perfect work of art and participate in our contests. Pick up your brush and start painting now.
 
 **Features:**  
 \* You don't need artistic skills to have fun with this game. Doodles, stick figures and sense of humor are welcome.  

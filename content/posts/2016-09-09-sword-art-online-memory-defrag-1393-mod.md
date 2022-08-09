@@ -11,7 +11,7 @@ draft: false
 Sword Art Online Memory Defrag 1.39.3 MOD (God Mode)  APK For Android
 
 TV anime "Sword Art Online Alicization" broadcast commemoration! An anime-linked event is being held!  
-Action RPG Sword Art Online-Memory Defragmentation that allows you to play and relive the original story of the original and TV animations, as well as the numerous memories and original stories of Kirito and Asuna.
+Action RPG Sword Art Online-Memory Defragmentation that allows you to play and relive the original story of the original and TV animations, as well as the numerous memories and original stories of Kirito and Asuna.
 
 Clear the stage by defeating the strong enemies you're waiting for while using the various skills of Kirito, Asuna, Alice, Eugeo, and other characters that appear in the originals and anime, with one fingertip. That is the goal of this game.
 

@@ -1,14 +1,14 @@
 ---
-title: 'Alice Gear Aegis 1.23.0 ÐOD (high damage) APK For Android'
+title: 'Alice Gear Aegis 1.23.0 ÐOD (high damage) APK For Android'
 date: 2020-01-01T03:14:00+01:00
 draft: false
 ---
 
-![Alice Gear Aegis 1.23.0 ÐOD (high damage) APK For Android](https://i1.wp.com/apkhome.net/wp-content/uploads/2019/11/Alice-Gear-Aegis.png "Alice Gear Aegis 1.23.0 ÐOD (high damage) APK For Android")
+![Alice Gear Aegis 1.23.0 ÐOD (high damage) APK For Android](https://i1.wp.com/apkhome.net/wp-content/uploads/2019/11/Alice-Gear-Aegis.png "Alice Gear Aegis 1.23.0 ÐOD (high damage) APK For Android")
 
   
 
-Alice Gear Aegis 1.23.0 ÐOD (high damage) APK For Android
+Alice Gear Aegis 1.23.0 ÐOD (high damage) APK For Android
 
 When Alice wakes up, a change enters human history
 
@@ -40,7 +40,7 @@ Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6
 
 **MOD TYPE: high damage**
 
-Download Alice Gear Aegis 1.23.0 ÐOD (high damage) APK For Android
+Download Alice Gear Aegis 1.23.0 ÐOD (high damage) APK For Android
 ===================================================================
 
 Additional Information

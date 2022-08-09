@@ -1,14 +1,14 @@
 ---
-title: 'Tegra Crafting and Building 1.1.2 ÐOD (Free Shopping) APK For Android'
+title: 'Tegra Crafting and Building 1.1.2 ÐOD (Free Shopping) APK For Android'
 date: 2020-01-06T23:56:00+01:00
 draft: false
 ---
 
-![Tegra Crafting and Building 1.1.2 ÐOD (Free Shopping) APK For Android](https://i2.wp.com/apkhome.net/wp-content/uploads/2019/11/Tegra-Crafting-and-Building-1.1.2-ÐOD-Free-Shopping.png "Tegra Crafting and Building 1.1.2 ÐOD (Free Shopping) APK For Android")
+![Tegra Crafting and Building 1.1.2 ÐOD (Free Shopping) APK For Android](https://i2.wp.com/apkhome.net/wp-content/uploads/2019/11/Tegra-Crafting-and-Building-1.1.2-ÐOD-Free-Shopping.png "Tegra Crafting and Building 1.1.2 ÐOD (Free Shopping) APK For Android")
 
   
 
-Tegra Crafting and Building 1.1.2 ÐOD (Free Shopping) APK For Android
+Tegra Crafting and Building 1.1.2 ÐOD (Free Shopping) APK For Android
 
 This survival shooter tells the magical cataclysm that has caused the mixing of several worlds. Portals of the world of Tegra have opened on our world, through which many magical creatures and zombies have penetrated.
 
@@ -31,7 +31,7 @@ Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6
 
 **MOD TYPE: Free Shopping**
 
-Download Tegra Crafting and Building 1.1.2 ÐOD (Free Shopping) APK For Android
+Download Tegra Crafting and Building 1.1.2 ÐOD (Free Shopping) APK For Android
 ===============================================================================
 
 Additional Information

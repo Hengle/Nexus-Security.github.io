@@ -1,14 +1,14 @@
 ---
-title: '1942 Arcade Shooter 3.62 ÐOD (Unlimited Stars + Gems + Medal) APK For Android'
+title: '1942 Arcade Shooter 3.62 ÐOD (Unlimited Stars + Gems + Medal) APK For Android'
 date: 2020-01-17T18:28:00+01:00
 draft: false
 ---
 
-![1942 Arcade Shooter 3.62 ÐOD (Unlimited Stars + Gems + Medal) APK For Android](https://i1.wp.com/apkhome.net/wp-content/uploads/2020/01/1942-Arcade-Shooter-3.62-ÐOD-Unlimited-Stars-Gems-Medal.png "1942 Arcade Shooter 3.62 ÐOD (Unlimited Stars + Gems + Medal) APK For Android")
+![1942 Arcade Shooter 3.62 ÐOD (Unlimited Stars + Gems + Medal) APK For Android](https://i1.wp.com/apkhome.net/wp-content/uploads/2020/01/1942-Arcade-Shooter-3.62-ÐOD-Unlimited-Stars-Gems-Medal.png "1942 Arcade Shooter 3.62 ÐOD (Unlimited Stars + Gems + Medal) APK For Android")
 
   
 
-1942 Arcade Shooter 3.62 ÐOD (Unlimited Stars + Gems + Medal) APK For Android
+1942 Arcade Shooter 3.62 ÐOD (Unlimited Stars + Gems + Medal) APK For Android
 
 1942 - The game takes place in the Pacific theater of the Second World War, off Midway Atoll. The objective is to attack the Japanese air fleet which bombed the American aircraft carrier, to pursue all the Japanese air and naval forces, to cross the 20 stages and to head towards the Japanese battleship Yamato to destroy it. The 12 stages consist of an air-sea battle (with a huge battleship or an aircraft carrier as stage boss), while the other eight stages consist of an air battle against a Japanese bomber squadron with a bomber- mother in the end.
 
@@ -28,7 +28,7 @@ Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6
 
 **MOD TYPE: Unlimited Stars + Gems + Medal**
 
-Download 1942 Arcade Shooter 3.62 ÐOD (Unlimited Stars + Gems + Medal) APK For Android
+Download 1942 Arcade Shooter 3.62 ÐOD (Unlimited Stars + Gems + Medal) APK For Android
 =======================================================================================
 
 Additional Information

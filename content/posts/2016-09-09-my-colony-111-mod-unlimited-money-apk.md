@@ -12,7 +12,7 @@ My Colony 1.1.1 MOD (Unlimited Money) APK For Android
 
 My Colony is a brand new simulation and spatial colonization strategy game from the maker of the successful simulation games My Planet, My Land and My Business Empire!
 
-My Colony is not and never will be one of those story or city type games in the nickel and dime games. The goal here is to adopt a futuristic approach to the classic sim city type game. I don't plan on adding multiplayer or enemies or things like that. I really want to keep this game in the science fiction simulation category.
+My Colony is not and never will be one of those story or city type games in the nickel and dime games. The goal here is to adopt a futuristic approach to the classic sim city type game. I don't plan on adding multiplayer or enemies or things like that. I really want to keep this game in the science fiction simulation category.
 
 Currently, My Colony is in a very early beta phase, in active development, open and welcome to all players. These first constructions are mainly intended for tests and comments. So please try the game and leave comments and feedback to help shape how this new epic simulation will unfold!
 

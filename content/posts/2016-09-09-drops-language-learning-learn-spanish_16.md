@@ -10,7 +10,7 @@ draft: false
 
 Drops Language learning learn Spanish and more Premium 34.4 APK For Android
 
-Drops eliminates the boredom of language learning: useful vocabulary is transmitted to your memory via superb minimalist illustrations and fast-paced micro-games.  
+Drops eliminates the boredom of language learning: useful vocabulary is transmitted to your memory via superb minimalist illustrations and fast-paced micro-games.  
 The fun part? It only takes 5 minutes a day. In fact, it's all the time you get! Foolish? Yes. Works? Absolutely!  
 **Supported Android**  
 {4.4 and UP}  

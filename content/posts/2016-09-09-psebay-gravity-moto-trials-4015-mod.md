@@ -22,7 +22,7 @@ A beautiful palette of colors combined with the depth of the sound universe crea
 
 MAGNIFICENT LANDSCAPES SILHOUETTE STYLE
 
-The silhouettes of nature's creations bearing the traces of technology from a bygone civilization perfectly complement the general atmosphere, giving a particular charm to the game. Thanks to them, you will always have the desire to discover new places and unusual throughout the game.
+The silhouettes of nature's creations bearing the traces of technology from a bygone civilization perfectly complement the general atmosphere, giving a particular charm to the game. Thanks to them, you will always have the desire to discover new places and unusual throughout the game.
 
 **Supported Android**  
 {4.0 and UP}  

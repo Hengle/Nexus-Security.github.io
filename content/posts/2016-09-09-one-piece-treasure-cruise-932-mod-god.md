@@ -29,7 +29,7 @@ Recruit and train the crew of your dreams!
 A new intuitive combat system
 
 \* Touch control specially designed for your smartphone  
-\* Execute tandem attacks, using certain pirates in a specific order, to inflict maximum damage!  
+\* Execute tandem attacks, using certain pirates in a specific order, to inflict maximum damage!  
 \* Create strategies and combos to inflict devastating damage  
 \* Become the most powerful crew that has ever sailed the seas!
 

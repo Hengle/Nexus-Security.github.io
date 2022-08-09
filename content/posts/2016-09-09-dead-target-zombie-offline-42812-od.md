@@ -1,14 +1,14 @@
 ---
-title: 'DEAD TARGET Zombie Offline 4.28.1.2 ÐOD (Unlimited Gold + Cash + Ads Removed) APK For Android'
+title: 'DEAD TARGET Zombie Offline 4.28.1.2 ÐOD (Unlimited Gold + Cash + Ads Removed) APK For Android'
 date: 2019-12-28T00:14:00+01:00
 draft: false
 ---
 
-![DEAD TARGET Zombie Offline 4.28.1.2 ÐOD (Unlimited Gold + Cash + Ads Removed) APK For Android](https://i0.wp.com/apkhome.net/wp-content/uploads/2019/11/DEAD-TARGET-Zombie-Offline-4.28.1.2-ÐOD-Unlimited-Gold-Cash-Ads-Removed.png "DEAD TARGET Zombie Offline 4.28.1.2 ÐOD (Unlimited Gold + Cash + Ads Removed) APK For Android")
+![DEAD TARGET Zombie Offline 4.28.1.2 ÐOD (Unlimited Gold + Cash + Ads Removed) APK For Android](https://i0.wp.com/apkhome.net/wp-content/uploads/2019/11/DEAD-TARGET-Zombie-Offline-4.28.1.2-ÐOD-Unlimited-Gold-Cash-Ads-Removed.png "DEAD TARGET Zombie Offline 4.28.1.2 ÐOD (Unlimited Gold + Cash + Ads Removed) APK For Android")
 
   
 
-DEAD TARGET Zombie Offline 4.28.1.2 ÐOD (Unlimited Gold + Cash + Ads Removed) APK For Android
+DEAD TARGET Zombie Offline 4.28.1.2 ÐOD (Unlimited Gold + Cash + Ads Removed) APK For Android
 
 In 2040, the Third World War broke out and the country's borders changed. The apocalypse of the zombies has begun. A special sniper team has been hired to go to war, collect guns and supply to save humanity!
 
@@ -30,7 +30,7 @@ Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6
 **MOD TYPE: Unlimited Gold + Cash + Ads Removed  
 **
 
-Download DEAD TARGET Zombie Offline 4.28.1.2 ÐOD (Unlimited Gold + Cash + Ads Removed) APK For Android
+Download DEAD TARGET Zombie Offline 4.28.1.2 ÐOD (Unlimited Gold + Cash + Ads Removed) APK For Android
 =======================================================================================================
 
 Additional Information

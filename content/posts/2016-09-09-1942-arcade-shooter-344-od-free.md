@@ -1,14 +1,14 @@
 ---
-title: '1942 Arcade Shooter 3.44 ÐOD (Free Shopping) APK For Android'
+title: '1942 Arcade Shooter 3.44 ÐOD (Free Shopping) APK For Android'
 date: 2019-12-28T11:56:00+01:00
 draft: false
 ---
 
-![1942 Arcade Shooter 3.44 ÐOD (Free Shopping) APK For Android](https://i2.wp.com/apkhome.net/wp-content/uploads/2019/11/1942-Arcade-Shooter.png "1942 Arcade Shooter 3.44 ÐOD (Free Shopping) APK For Android")
+![1942 Arcade Shooter 3.44 ÐOD (Free Shopping) APK For Android](https://i2.wp.com/apkhome.net/wp-content/uploads/2019/11/1942-Arcade-Shooter.png "1942 Arcade Shooter 3.44 ÐOD (Free Shopping) APK For Android")
 
   
 
-1942 Arcade Shooter 3.44 ÐOD (Free Shopping) APK For Android
+1942 Arcade Shooter 3.44 ÐOD (Free Shopping) APK For Android
 
 1942 - The game takes place in the Pacific Theater of the Second World War, off Midway Atoll. The objective is to attack the Japanese air fleet that bombed the US aircraft carrier, to pursue all Japanese air and naval forces, to cross the 20 stages and to head for the Japanese battleship Yamato to destroy it. The 12 stages consist of an air-sea battle (with a huge battleship or an aircraft carrier as the stage boss), while the other eight stages consist of an air battle against a squadron of Japanese bombers with a bomber- mother at the end.
 
@@ -28,7 +28,7 @@ Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6
 
 **MOD TYPE: Free Shopping**
 
-Download 1942 Arcade Shooter 3.44 ÐOD (Free Shopping) APK For Android
+Download 1942 Arcade Shooter 3.44 ÐOD (Free Shopping) APK For Android
 ======================================================================
 
 Additional Information

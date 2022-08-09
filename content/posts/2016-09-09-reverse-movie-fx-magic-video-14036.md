@@ -22,7 +22,7 @@ Download Reverse Movie FX magic video 1.4.0.36 Unlocked APK For Android
 Additional Information
 ----------------------
 
-**Developer :** Ã¢¨ Bizo Mobile
+**Developer :** Ã¢¨ Bizo Mobile
 
 **Version :** 1.4.0.36
 

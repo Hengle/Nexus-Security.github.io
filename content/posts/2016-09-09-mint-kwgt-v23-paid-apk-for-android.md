@@ -11,7 +11,7 @@ draft: false
 Mint KWGT v2.3 Paid APK For Android
 
 Mint KWGT is an Android personalization app created by Chris J4ck that you can install on your Android devices and enjoy!  
-This application needs Pro version of Kwgt & Custom launcher.  
+This application needs Pro version of Kwgt & Custom launcher.  
 **Supported Android**  
 {5.0 and UP}  
 **Supported Android Version**:-  

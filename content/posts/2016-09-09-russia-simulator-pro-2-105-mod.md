@@ -10,12 +10,12 @@ draft: false
 
 Russia Simulator Pro 2 1.0.5 MOD (Unlimited Money) APK For Android
 
-Download Russia 2 Prime Simulation Game right now to:  
+Download Russia 2 Prime Simulation Game right now to:  
 \* Dive into the governance process.  
 \* Find out what tasks the president decides each day.  
 \* Create a prosperous state.
 
-Russia 2 Prime Simulation Game" consists of:  
+Russia 2 Prime Simulation Game" consists of:  
 \* Ministry of Ecology  
 \* Ministry of Energy  
 \* Ministry of infrastructure  

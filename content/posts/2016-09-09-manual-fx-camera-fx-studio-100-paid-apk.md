@@ -23,7 +23,7 @@ Download Manual FX Camera FX Studio 1.0.0 Paid APK For Android
 Additional Information
 ----------------------
 
-**Developer :** Ã«¯¸Ã¬¹ Ã¬± Ã©
+**Developer :** Ã«¯¸Ã¬¹ Ã¬± Ã©
 
 **Version :** 1.0.0
 

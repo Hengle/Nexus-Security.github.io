@@ -19,7 +19,7 @@ Mad Skills Motocross 2 has the best physical qualities of any scrolling racing g
 12 DIFFERENT MOTORCYCLES!  
 Prove yourself on 12 different motorcycles, with different speeds and grips. Take the fastest and dominate your friends!
 
-A BRAND NEW VERSUS PLAYER vs. PLAYER MODE  
+A BRAND NEW VERSUS PLAYER vs. PLAYER MODE  
 It is absolutely insane. Choose a friend (or a random opponent), a circuit, and achieve the best lap time in two minutes. Then wait to see if he can do better at the same time. Earn XP to level up and take advantage of fantastic virtual gifts.
 
 **Supported Android**  

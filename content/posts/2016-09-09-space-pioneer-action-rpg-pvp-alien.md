@@ -10,7 +10,7 @@ draft: false
 
 Space Pioneer Action RPG PvP Alien Shooter 1.11.0 MOD (Unlimited Money) APK For Android
 
-The Very Old Friends update is here, and it comes with a new classroom system. You can now play as a versatile Pioneer, Defense-heavy Heavy or Light the speedster.  
+The Very Old Friends update is here, and it comes with a new classroom system. You can now play as a versatile Pioneer, Defense-heavy Heavy or Light the speedster.  
 What are these courses for? Well, they give you new styles of playing rpg games. In PvP (deathmatch) multiplayer, you can take advantage of their unique stats and weapon preferences to outperform in pvp shooter mode. On top of that in co-op, each class has a set of evolving passive bonuses that affect all players on your crew, so protect the world from alien waves like real space marshalls.
 
 **Supported Android**  

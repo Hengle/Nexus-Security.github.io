@@ -17,7 +17,7 @@ MiX Launcher is inspired by Mi 11 Launcher, adding many useful features, such as
 \* Mi X Launcher can work without problem on all Android 5.0+ devices  
 \* Mi X Launcher support hides private or unused applications and locks hidden applications  
 \* Mi X Launcher support notification points  
-\* Support for Mi X Launcher ï¸Gestures, such as swipe up / down, pinch in / out, double tap, two fingers up / down  
+\* Support for Mi X Launcher ï¸Gestures, such as swipe up / down, pinch in / out, double tap, two fingers up / down  
 **Supported Android**  
 {5.0 and UP}  
 **Supported Android Version**:-  

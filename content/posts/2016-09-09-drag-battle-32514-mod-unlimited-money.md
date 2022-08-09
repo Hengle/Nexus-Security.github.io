@@ -10,7 +10,7 @@ draft: false
 
 Drag Battle 3.25.14 MOD (Unlimited Money) APK For Android
 
-A real racing experience awaits you in Drag Battle: Car Race Game 4 Real Racers. It is a high quality racing game that stands out from other racing games with great graphics and gameplay. Not only can you drive inside view, but also take advantage of creativity like building new parts from your own projects, applying them to cars and winning the RACE.
+A real racing experience awaits you in Drag Battle: Car Race Game 4 Real Racers. It is a high quality racing game that stands out from other racing games with great graphics and gameplay. Not only can you drive inside view, but also take advantage of creativity like building new parts from your own projects, applying them to cars and winning the RACE.
 
 **Features:**  
 \* REALISTIC physics of the car on the track  

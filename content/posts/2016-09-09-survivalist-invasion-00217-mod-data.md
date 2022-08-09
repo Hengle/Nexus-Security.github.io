@@ -12,7 +12,7 @@ Survivalist invasion 0.0.217 MOD + DATA (Unlimited gold coins)  APK For Android
 
 The legendary hero is ready for the next task - but this time, he won't be able to win without your help! Together, you can discover all the secrets of the archipelago lost in the ocean and save our world from the deadly threat.
 
-Survivalist: invasion is an exciting new survival game with advanced RPG elements. Find yourself on paradise tropical islands, where powerful secret societies and powerful terrorist organizations are conducting experiments that can radically change the history of humanity. Blast your way with a special agent, known as US Connected, and stop the impending global catastrophe!
+Survivalist: invasion is an exciting new survival game with advanced RPG elements. Find yourself on paradise tropical islands, where powerful secret societies and powerful terrorist organizations are conducting experiments that can radically change the history of humanity. Blast your way with a special agent, known as US Connected, and stop the impending global catastrophe!
 
 Survivalist: the invasion is based on classic mechanisms and dedicated survival games. Here you will have to explore the territory, seek resources, make weapons and equipment, build and strengthen the base, engage in intense battles with different enemies - from traditional zombies to unique mutant bosses with superpowers. Your survival is in your hands.
 

@@ -13,7 +13,7 @@ WEATHER NOW forecast radar & widgets ad free 0.3.24 Paid APK For Android
 Incredibly beautiful 3D images of our planet Earth grab your attention for so long that you can forget that the app has other useful features that allow you to easily access accurate global weather information.  
 **Characteristics:**  
 \* Easily select different cities using the city carousel with national flags  
-\* Chic 3D home screen with a high-quality real-time image of the earth, the atmosphere, the stars and the sun  
+\* Chic 3D home screen with a high-quality real-time image of the earth, the atmosphere, the stars and the sun  
 \* 15-day forecast table with detailed daily weather conditions, independent day and night temperature graphs  
 \* 48 hour hourly forecast with detailed information  
 \* Database of over 100,000 cities with weather information, quick search and automatic location detection  

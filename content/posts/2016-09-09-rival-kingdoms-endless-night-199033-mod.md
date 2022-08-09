@@ -14,7 +14,7 @@ Build the ULTIMATE base, forge a MIGHTY Kingdom and CRUSH your enemies in "Rival
 
 Join forces with the "Ancients"; Legendary WARRIORS, GODS and MONSTERS able to harness the forces of nature. Use their DEVASTATING POWERS to turn the tide of battle to your advantage!
 
-Lay waste to the evil forces of "Ruin" in the single player campaign or join a true MMO-EXPERIENCE with players from around the world in the ADDICTIVE Kingdom Raid" mode.
+Lay waste to the evil forces of "Ruin" in the single player campaign or join a true MMO-EXPERIENCE with players from around the world in the ADDICTIVE Kingdom Raid" mode.
 
 **Features:**
 

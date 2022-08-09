@@ -10,7 +10,7 @@ draft: false
 
 Headway Books' Key Ideas 1.2.3.3 Mod APK For Android
 
-Immerse yourself in any subject and master any skill with the best books in the world on productivity, negotiation, money, health, love, business, investment, etc. This app is incredibly easy for me because I can't really read when I'm working or driving; however I can listen all day at night. When a subject is not clear, I look at it to improve my reading skills. "\* Carlos Vieira
+Immerse yourself in any subject and master any skill with the best books in the world on productivity, negotiation, money, health, love, business, investment, etc. This app is incredibly easy for me because I can't really read when I'm working or driving; however I can listen all day at night. When a subject is not clear, I look at it to improve my reading skills. "\* Carlos Vieira
 
 **Supported Android**  
 {4.0 and UP}  

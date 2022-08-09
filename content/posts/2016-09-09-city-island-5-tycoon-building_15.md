@@ -11,7 +11,7 @@ draft: false
 City Island 5 Tycoon Building Simulation Offline 2.5.0 MOD (Unlimited Money) APK For Android
 
 Build a city, your city  
-City Island 5 - The offline tycoon building simulation, a new city building game from Sparkling Society, will make you the mayor of a small town starting on a single island. Send your airship to explore the world and unlock new and beautiful islands to build your new cities. In most city building games, you only manage one city, but in "City Island 5 - Magnat Construction Offline Simulation Game", you expand your skyline and cityscapes to new islands, each with a different theme and surface to build a city. This city game is also playable offline. You can thus create your own city without Internet or in the absence of WiFi connection. Join millions of players with the most popular series of city building games on mobile!
+City Island 5 - The offline tycoon building simulation, a new city building game from Sparkling Society, will make you the mayor of a small town starting on a single island. Send your airship to explore the world and unlock new and beautiful islands to build your new cities. In most city building games, you only manage one city, but in "City Island 5 - Magnat Construction Offline Simulation Game", you expand your skyline and cityscapes to new islands, each with a different theme and surface to build a city. This city game is also playable offline. You can thus create your own city without Internet or in the absence of WiFi connection. Join millions of players with the most popular series of city building games on mobile!
 
 **Features:**  
 \* Collect, improve, decorate, explore in this complete construction simulation game!  
