@@ -12,11 +12,11 @@ HIDE 0.28.13 MOD (Unlock all items) APK For Android
 
 it is an unusual multiplayer shooter for 1 person. Not only soldiers or bandits came here, but hunters and accessories.
 
-Prop Hunt or HIDE and SEEK has long since become a separate genre that attracts players from around the world. If you haven't played such games yet, then welcome to «ï¸ H.I.D.E. «ï¸
+Prop Hunt or HIDE and SEEK has long since become a separate genre that attracts players from around the world. If you haven't played such games yet, then welcome to «ï¸ H.I.D.E. «ï¸
 
 The task of the hunter is to catch all the naughty accessories, and the task of the accessories is to hide so that the hunters cannot find and kill him.
 
-Enjoy the brilliant graphics and unique gameplay in «ï¸ H.I.D.E. «ï¸ Players around the world have long been divided into fighters and accessories, which team will you play in?
+Enjoy the brilliant graphics and unique gameplay in «ï¸ H.I.D.E. «ï¸ Players around the world have long been divided into fighters and accessories, which team will you play in?
 
 **Supported Android**  
 {4.0 and UP}  

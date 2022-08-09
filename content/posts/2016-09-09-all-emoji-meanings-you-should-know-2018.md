@@ -1945,7 +1945,7 @@ This is the Virgo zodiac sign emoji and it represents a Maiden.
 
 This is the Libra zodiac sign emoji and it represents weighing scales.  
 
-### Scorpio![ Scorpio](https://beebom.com/wp-content/uploads/2018/11/%C2%99%C2%8F-Scorpio.png)
+### Scorpio![ Scorpio](https://beebom.com/wp-content/uploads/2018/11/%C2%99%C2%8F-Scorpio.png)
 
   
 

@@ -10,7 +10,7 @@ draft: false
 
 Starman 1.0.2 MOD (full version) APK For Android
 
-(Ð¿Ð¾Ð»Ð½Ð°Ñ Ð²ÐµÑÑÐ¸Ñ) Guide Starman through breathtaking landscapes with delicate atmospheres and complex puzzles. Recover the light and bring back life!
+(Ð¿Ð¾Ð»Ð½Ð°Ñ Ð²ÐµÑÑÐ¸Ñ) Guide Starman through breathtaking landscapes with delicate atmospheres and complex puzzles. Recover the light and bring back life!
 
 A challenge.  
 New puzzles at each level will take you to learn and think outside the box.

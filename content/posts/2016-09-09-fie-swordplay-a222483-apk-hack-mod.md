@@ -1,14 +1,14 @@
 ---
-title: 'FIE Swordplay 2.22.483 APK + Hack MOD Unlimited Money APK For Android'
+title: 'FIE Swordplay 2.22.483 APK + Hack MOD Unlimited Money APK For Android'
 date: 2020-01-06T19:42:00+01:00
 draft: false
 ---
 
-![FIE Swordplay 2.22.483 APK + Hack MOD Unlimited Money APK For Android](https://i0.wp.com/apkhome.net/wp-content/uploads/2018/06/FIE-Swordplay-‏2.22.483.png "FIE Swordplay 2.22.483 APK + Hack MOD Unlimited Money APK For Android")
+![FIE Swordplay 2.22.483 APK + Hack MOD Unlimited Money APK For Android](https://i0.wp.com/apkhome.net/wp-content/uploads/2018/06/FIE-Swordplay-‏2.22.483.png "FIE Swordplay 2.22.483 APK + Hack MOD Unlimited Money APK For Android")
 
   
 
-FIE Swordplay 2.22.483 APK + Hack MOD Unlimited Money APK For Android
+FIE Swordplay 2.22.483 APK + Hack MOD Unlimited Money APK For Android
 
 The first game in the world officially recognized by the FIE Swordplay invites you to enjoy the joys of sports fencing with foil, sword and saber! Master the most cunning feints as well as all the authentic techniques, from the most basic to the most devastating! On the program: thrust, boot, parry, riposte and much more! Face the I.A. or cross swords with a friend (social networks) in an epic duel!  
 \+ For the very first time on mobile, a game scrupulously respecting the rules and techniques of sports fencing  
@@ -21,7 +21,7 @@ The first game in the world officially recognized by the FIE Swordplay invites y
 Supported Android Version:-  
 Jelly Bean (4.1"4.3.1) - KitKat (4.4"4.4.4) - Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1)
 
-Download FIE Swordplay 2.22.483 APK + Hack MOD Unlimited Money APK For Android
+Download FIE Swordplay 2.22.483 APK + Hack MOD Unlimited Money APK For Android
 =================================================================================
 
 **MOD**

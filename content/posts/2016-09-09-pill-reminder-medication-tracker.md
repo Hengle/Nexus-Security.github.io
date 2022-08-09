@@ -33,7 +33,7 @@ Download Pill Reminder & Medication Tracker Medisafe Premium 8.70.08613 Mod APK 
 Additional Information
 ----------------------
 
-**Developer :** MedisafeÃ® Ã°'Ã¢°
+**Developer :** MedisafeÃ® Ã°'Ã¢°
 
 **Version :** 8.70.08613
 

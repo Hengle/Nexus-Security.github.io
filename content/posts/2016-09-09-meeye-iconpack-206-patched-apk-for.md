@@ -28,7 +28,7 @@ Download Meeye Iconpack 2.0.6 Patched APK For Android
 Additional Information
 ----------------------
 
-**Developer :** é¡µé¡µå¤§åç«
+**Developer :** é¡µé¡µå¤§åç«
 
 **Version :** 2.0.6
 

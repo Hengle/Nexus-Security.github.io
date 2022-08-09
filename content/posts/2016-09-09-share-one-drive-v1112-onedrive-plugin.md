@@ -10,7 +10,7 @@ draft: false
 
 GUNSHIP BATTLE Helicopter 3D 2.7.43 APK + DATA (Free Shopping) APK For Android
 
-ãGUNSHIP BATTLEã is a helicopter action game that combines great 3D graphics with flight control simulation and engaging military scenarios to immerse you in an immersive combat experience the moment you start the game.
+ãGUNSHIP BATTLEã is a helicopter action game that combines great 3D graphics with flight control simulation and engaging military scenarios to immerse you in an immersive combat experience the moment you start the game.
 
 **Features:**
 

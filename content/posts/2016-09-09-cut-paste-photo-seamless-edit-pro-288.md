@@ -10,7 +10,7 @@ draft: false
 
 Cut Paste Photo Seamless Edit Pro 28.8 APK For Android
 
-Turn any photo into a fun photo. Put yourself next to a celebrity or move to any point on the globe ????ï¸ using photomontage. Swap your face with friends or swap faces with superstars and cute animals Easy to use. Import photos from the photo gallery or find them on the web ???? using image search. Cut what you need, indicate where to paste the photo and the app will do the rest.
+Turn any photo into a fun photo. Put yourself next to a celebrity or move to any point on the globe ????ï¸ using photomontage. Swap your face with friends or swap faces with superstars and cute animals Easy to use. Import photos from the photo gallery or find them on the web ???? using image search. Cut what you need, indicate where to paste the photo and the app will do the rest.
 
 **Supported Android**  
 {4.0 and UP}  

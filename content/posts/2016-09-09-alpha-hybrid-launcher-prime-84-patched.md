@@ -14,9 +14,9 @@ like simplicity and class? , do you like to try new interfaces with incredible c
 **Characteristics:**  
 \* Live wallpaper themes - It's time to make your friends  
 \* Premium futuristic themes and wallpapers  
-\* Alpha DIY customization function (¤ï¸ Do it yourself)  
+\* Alpha DIY customization function (¤ï¸ Do it yourself)  
 \* Integrated telephone dialer  
-\* Phone memory cleaner (¡ï¸Phone Booster)  
+\* Phone memory cleaner (¡ï¸Phone Booster)  
 \* Simple calendar and weather widget notifications  
 \* Lock apps with fingerprint or 4-digit pin  
 \* Support for unread notification badges  

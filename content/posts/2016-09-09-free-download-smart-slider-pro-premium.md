@@ -13,7 +13,7 @@ Jurassic Survival Island Dinosaurs & Craft 3.9 MOD + DATA (Unlimited Gold Coins 
 Dinosaur games | Juegos de dinosaurios  
 It is a new survival craft with dinosaurs. You will live on the island in the neighborhood with these fantastic creatures who are playful and very dangerous! Overall, you will get a lot of crafts and battles in three ocean islands where your main objective is to survive!
 
-Survival games | Juegos de supervivencia ????ï¸  
+Survival games | Juegos de supervivencia ????ï¸  
 Survival is not as simple as it seems. You have to make weapons, look for food, build shelter ... Your basic objective is quite simple - survive on the island in the ocean. The island offers a wide variety of resources and vital materials: beat the wood of the trees with your own hands, collect stones and make weapons.
 
 Dinosaur hunter | Juegos de caza ????  

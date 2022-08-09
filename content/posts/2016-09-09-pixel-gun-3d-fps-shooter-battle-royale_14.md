@@ -15,7 +15,7 @@ You can choose from several FPS modes: offline campaign with Pixelman, Battle Ro
 Fast multiplayer and high FPS guaranteed.
 
 **Features:**  
-\* ï¸ Battle Royale: 2 cards, 100 players, the last player standing wins;  
+\* ï¸ Battle Royale: 2 cards, 100 players, the last player standing wins;  
 Orts Clan Forts: attack the fort of your enemies and defend yours, use clan chests to get different items to strengthen the fort;  
 \* Offline modes: zombie apocalypse without Wi-Fi and Internet;  
 \* 11+ modes: Deathmatch, Arena, Cooperative Survival, Campaign and many more;  

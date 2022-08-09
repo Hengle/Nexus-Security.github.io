@@ -15,7 +15,7 @@ We believe in the accelerator, not the brakes. A different experience from a fre
 GT Club includes tons of racing cars with amazing quality that you have never experienced in any of the drag racing games. Drag racing is a type of driving game in which you focus more on improving your car and shifting in time, rather than steering the car.
 
 **Features:**  
-\* ï¸ Over 65 cars - premium and nostalgic (and more along the way)
+\* ï¸ Over 65 cars - premium and nostalgic (and more along the way)
 
 \* Simulation of driving physics and racing according to reality (test to find out)
 

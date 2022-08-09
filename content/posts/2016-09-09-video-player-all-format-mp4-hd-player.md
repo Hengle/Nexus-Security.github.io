@@ -12,15 +12,15 @@ Video Player All format Mp4 hd player Premium 1.0.9 APK For Android
 
 Video player Any HD format-Mp4 player is the simplest phone video player, has powerful video decoding capabilities to help you easily play almost all video files stored on your phone.  
 **Characteristics:**  
-\* ï¸Play HD, Full HD, 1080p and 4K videos.  
-\* ï¸Supports all video formats: MKV, MP4, M4V, AVI, MOV, 3GP, FLV, WMV, RMVB, TS etc.  
+\* ï¸Play HD, Full HD, 1080p and 4K videos.  
+\* ï¸Supports all video formats: MKV, MP4, M4V, AVI, MOV, 3GP, FLV, WMV, RMVB, TS etc.  
 \* Controller Speed controller (reading speed)  
 \* Night mode, locked video screen, fast mute  
 \* Hardware acceleration  
 \* Multimedia controls: easy control of volume, brightness and playback progress.  
-\* ï¸Video equalizer  
+\* ï¸Video equalizer  
 \* Recently played (history)  
-\* ï¸Easy sharing of videos and applications  
+\* ï¸Easy sharing of videos and applications  
 **Supported Android**  
 {4.2 and UP}  
 **Supported Android Version**:-  

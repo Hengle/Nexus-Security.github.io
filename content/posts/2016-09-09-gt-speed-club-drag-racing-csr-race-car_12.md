@@ -16,7 +16,7 @@ GT Club includes tons of racing cars with amazing quality that you have never ex
 
 **Features:**
 
-\* ï¸ Over 65 cars - premium and nostalgic (and more along the way)
+\* ï¸ Over 65 cars - premium and nostalgic (and more along the way)
 
 \* Simulation of driving physics and racing according to reality (test to find out)
 
@@ -28,7 +28,7 @@ GT Club includes tons of racing cars with amazing quality that you have never ex
 
 \* Applicable to good performance, even on weak phones (less than 1 GB)
 
-\* ï¸ Simple, beautiful and attractive interface
+\* ï¸ Simple, beautiful and attractive interface
 
 **Supported Android**  
 {4.0 and UP}  
