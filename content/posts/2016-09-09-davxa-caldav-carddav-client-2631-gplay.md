@@ -1,19 +1,19 @@
 ---
-title: 'DAVxµ CalDAV / CardDAV Client 2.6.3.1-gplay Paid APK For Android'
+title: 'DAVx CalDAV / CardDAV Client 2.6.3.1-gplay Paid APK For Android'
 date: 2020-01-15T12:14:00+01:00
 draft: false
 ---
 
-![DAVxµ CalDAV / CardDAV Client 2.6.3.1-gplay Paid APK For Android](https://i0.wp.com/apkhome.net/wp-content/uploads/2020/01/DAVxµ-CalDAV.png "DAVxµ CalDAV / CardDAV Client 2.6.3.1-gplay Paid APK For Android")
+![DAVx CalDAV / CardDAV Client 2.6.3.1-gplay Paid APK For Android](https://i0.wp.com/apkhome.net/wp-content/uploads/2020/01/DAVx-CalDAV.png "DAVx CalDAV / CardDAV Client 2.6.3.1-gplay Paid APK For Android")
 
   
 
-DAVxµ CalDAV / CardDAV Client 2.6.3.1-gplay Paid APK For Android
+DAVx CalDAV / CardDAV Client 2.6.3.1-gplay Paid APK For Android
 
-DAVxµ (formerly known by another name) is the only all-in-one synchronization solution for your contacts (CardDAV), calendars (CalDAV) and your tasks (based on VTODO). The app is easy to configure and integrates perfectly with your favorite calendar / contacts app (including the default apps). It can also be used separately, if you have CalDAV, CardDAV or just tasks.  
+DAVx (formerly known by another name) is the only all-in-one synchronization solution for your contacts (CardDAV), calendars (CalDAV) and your tasks (based on VTODO). The app is easy to configure and integrates perfectly with your favorite calendar / contacts app (including the default apps). It can also be used separately, if you have CalDAV, CardDAV or just tasks.  
 **Characteristics:**  
 \* Synchronize your DAV calendars (CalDAV) and your address books (CardDAV) and tasks in a single application  
-\* Bidirectional synchronization (server " client)  
+\* Bidirectional synchronization (server  client)  
 Implementation Native implementation of Android 4+  
 \* Perfect integration with your favorite device and apps  
 \* Easy configuration (automatic resource detection, support for self-signed certificates, authentication by client certificates)  
@@ -24,7 +24,7 @@ Implementation Native implementation of Android 4+
 **Supported Android Version**:-  
 KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
-Download DAVxµ CalDAV / CardDAV Client 2.6.3.1-gplay Paid APK For Android
+Download DAVx CalDAV / CardDAV Client 2.6.3.1-gplay Paid APK For Android
 ===========================================================================
 
 Additional Information
