@@ -14,7 +14,7 @@ ApkProtector is the protector and obfuscator for Android applications. It helps 
 **Supported Android**  
 {5.0 and UP}  
 **Supported Android Version**:-  
-Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 Download ApkProtector 7.1 Untouched APK For Android
 ===================================================
@@ -22,7 +22,7 @@ Download ApkProtector 7.1 Untouched APK For Android
 Additional Information
 ----------------------
 
-**Developer :** ÃÂÃÂ²ÃÂ°ÃÂ½ ÃÂ¢ÃÂ¸ÃÂ¼ÃÂ°Ã'ÂÃÂºÃÂ¾ÃÂ²
+**Developer :** ÃÃ²Ã°Ã½ Ã¢Ã¸Ã¼Ã°Ã'ÃºÃ¾Ã²
 
 **Version :** 7.1
 

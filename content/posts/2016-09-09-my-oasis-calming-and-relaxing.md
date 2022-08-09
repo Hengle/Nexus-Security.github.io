@@ -12,7 +12,7 @@ My Oasis Calming and Relaxing Incremental Game 1.292 MOD (Unlimited Money) APK F
 
 Releasing stress can be difficult when you have so much to do and so little free time. My Oasis is a fun relaxation app designed for people who need a break from their daily routine.
 
-My Oasis contains nothing that could stress you out. Itâs an easy\*to\*play inactivity game with no complex controls to relax.
+My Oasis contains nothing that could stress you out. Its an easy\*to\*play inactivity game with no complex controls to relax.
 
 Its restful music and peaceful sounds will help you find peace of mind. Your oasis will grow as you interact with surrounding life, in an atmosphere of relaxation. Its simple relaxation mechanisms will soothe you in no time.
 
@@ -39,7 +39,7 @@ Relaxation app
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: Unlimited Money**
 

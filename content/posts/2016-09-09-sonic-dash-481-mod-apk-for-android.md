@@ -12,10 +12,10 @@ Sonic Dash 4.8.1 MOD APK For Android
 
 Play as Sonic the Hedgehog as you rush, jump and make your way through stunning 3D environments. Slide your way over and under difficult obstacles in this fast and frantic endless running game.
 
-SONICâ¦  
+SONIC¦  
 The famous Sonic the Hedgehog plays in his first endless running game - how far can you go?
 
-â¦HYPHEN!  
+¦HYPHEN!  
 Unleash Sonic's incredible dash movement that lets you run at breakneck speed and destroy everything in your path!
 
 AMAZING CAPACITIES  
@@ -30,7 +30,7 @@ Choose to play as one of Sonic's friends, including Tails, Shadow and Knuckles.
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 Download Sonic Dash 4.8.1 MOD APK For Android
 =============================================

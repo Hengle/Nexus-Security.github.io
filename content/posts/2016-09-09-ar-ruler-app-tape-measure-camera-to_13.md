@@ -22,7 +22,7 @@ The AR Ruler app uses augmented reality (AR) technology to measure the real worl
 **Supported Android**  
 {7.0 and UP}  
 **Supported Android Version**:-  
-Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 Download AR Ruler App Tape Measure & Camera To Plan Pro 1.4.6 APK For Android
 =============================================================================

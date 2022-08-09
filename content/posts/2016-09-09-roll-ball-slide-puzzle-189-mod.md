@@ -10,7 +10,7 @@ draft: false
 
 Roll the Ball slide puzzle 1.8.9 MOD (Unlimited Hints + Unlocked) APK For Android
 
-Roll the BallÂ® is a classic tile puzzle with a modern and stimulating touch. Move the sliding tiles to unlock a path for the steel ball to roll to the exit. Enjoy the satisfaction of seeing the ball roll smoothly through the connected tiles until the end.  
+Roll the Ball® is a classic tile puzzle with a modern and stimulating touch. Move the sliding tiles to unlock a path for the steel ball to roll to the exit. Enjoy the satisfaction of seeing the ball roll smoothly through the connected tiles until the end.  
 Are you ready to ride?
 
 **Features:**  
@@ -23,7 +23,7 @@ Are you ready to ride?
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: Unlimited Hints + Unlocked**
 

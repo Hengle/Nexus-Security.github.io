@@ -1,14 +1,14 @@
 ---
-title: 'BASEBALL 9 1.4.1 MOD (Unlimited gems ââ+ coins + resources) APK For Android'
+title: 'BASEBALL 9 1.4.1 MOD (Unlimited gems + coins + resources) APK For Android'
 date: 2020-01-01T17:28:00+01:00
 draft: false
 ---
 
-![BASEBALL 9 1.4.1 MOD (Unlimited gems ââ+ coins + resources) APK For Android](https://i1.wp.com/apkhome.net/wp-content/uploads/2020/01/BASEBALL-9-1.4.1-MOD-Unlimited-gems-ââ-coins-resources.png "BASEBALL 9 1.4.1 MOD (Unlimited gems ââ+ coins + resources) APK For Android")
+![BASEBALL 9 1.4.1 MOD (Unlimited gems + coins + resources) APK For Android](https://i1.wp.com/apkhome.net/wp-content/uploads/2020/01/BASEBALL-9-1.4.1-MOD-Unlimited-gems--coins-resources.png "BASEBALL 9 1.4.1 MOD (Unlimited gems + coins + resources) APK For Android")
 
   
 
-BASEBALL 9 1.4.1 MOD (Unlimited gems ââ+ coins + resources) APK For Android
+BASEBALL 9 1.4.1 MOD (Unlimited gems + coins + resources) APK For Android
 
 Enjoy a realistic and fast-paced baseball game, with compact gameplay and informative statistics.
 
@@ -27,12 +27,12 @@ Play BASEBALL NINE to become the legendary League champion!
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
-**MOD TYPE: Unlimited gems ââ+ coins + resources  
+**MOD TYPE: Unlimited gems + coins + resources  
 **
 
-Download BASEBALL 9 1.4.1 MOD (Unlimited gems ââ+ coins + resources) APK For Android
+Download BASEBALL 9 1.4.1 MOD (Unlimited gems + coins + resources) APK For Android
 ========================================================================================
 
 Additional Information

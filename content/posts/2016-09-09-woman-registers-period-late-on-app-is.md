@@ -4,7 +4,7 @@ date: 2019-11-04T01:59:00+01:00
 draft: false
 ---
 
-> Been debating whether I should share this - but think itâs a revealing - and somewhat creepy - insight into how big tech navigates womenâs bodies: Last week I suddenly began getting mummy and baby ads on Facebook...
+> Been debating whether I should share this - but think its a revealing - and somewhat creepy - insight into how big tech navigates womens bodies: Last week I suddenly began getting mummy and baby ads on Facebook...
 > 
 > — Talia Shadwell (@TaliaShadwell) [November 3, 2019](https://twitter.com/TaliaShadwell/status/1191054331119837185?ref_src=twsrc%5Etfw)
 

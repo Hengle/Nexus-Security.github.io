@@ -1,14 +1,14 @@
 ---
-title: 'Shattered Pixel Dungeon Roguelike Dungeon Crawler 0.7.5e MOD (Mod Money + Unlocked)Â  APK For Android'
+title: 'Shattered Pixel Dungeon Roguelike Dungeon Crawler 0.7.5e MOD (Mod Money + Unlocked)  APK For Android'
 date: 2019-12-16T02:28:00+01:00
 draft: false
 ---
 
-![Shattered Pixel Dungeon Roguelike Dungeon Crawler 0.7.5e MOD (Mod Money + Unlocked)Â  APK For Android](https://i0.wp.com/apkhome.net/wp-content/uploads/2019/11/Shattered-Pixel-Dungeon-Roguelike-Dungeon-Crawler.png "Shattered Pixel Dungeon Roguelike Dungeon Crawler 0.7.5e MOD (Mod Money + Unlocked)Â  APK For Android")
+![Shattered Pixel Dungeon Roguelike Dungeon Crawler 0.7.5e MOD (Mod Money + Unlocked)  APK For Android](https://i0.wp.com/apkhome.net/wp-content/uploads/2019/11/Shattered-Pixel-Dungeon-Roguelike-Dungeon-Crawler.png "Shattered Pixel Dungeon Roguelike Dungeon Crawler 0.7.5e MOD (Mod Money + Unlocked)  APK For Android")
 
   
 
-Shattered Pixel Dungeon Roguelike Dungeon Crawler 0.7.5e MOD (Mod Money + Unlocked)Â  APK For Android
+Shattered Pixel Dungeon Roguelike Dungeon Crawler 0.7.5e MOD (Mod Money + Unlocked)  APK For Android
 
 Pixel Broken Dungeon is a Roguelike RPG, with pixel art graphics and a lot of variety and replayability. Each game is unique, with four playable characters, random and enemy levels, and more than 150 items to collect and use. The game is simple to enter, but has a lot of depth. The strategy is necessary if you want to win!
 
@@ -24,11 +24,11 @@ This game is based on Dungeon Pixel's freely available source code. It began as 
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: Mod Money + Unlocked**
 
-Download Shattered Pixel Dungeon Roguelike Dungeon Crawler 0.7.5e MOD (Mod Money + Unlocked)Â  APK For Android
+Download Shattered Pixel Dungeon Roguelike Dungeon Crawler 0.7.5e MOD (Mod Money + Unlocked)  APK For Android
 ==============================================================================================================
 
 Additional Information

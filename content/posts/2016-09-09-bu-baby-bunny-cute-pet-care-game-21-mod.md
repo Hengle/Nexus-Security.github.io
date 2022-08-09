@@ -1,14 +1,14 @@
 ---
-title: 'Bu the Baby Bunny Cute pet care game 2.1 MOD (gems + coins)Â  APK For Android'
+title: 'Bu the Baby Bunny Cute pet care game 2.1 MOD (gems + coins)  APK For Android'
 date: 2020-01-19T18:00:00+01:00
 draft: false
 ---
 
-![Bu the Baby Bunny Cute pet care game 2.1 MOD (gems + coins)Â  APK For Android](https://i0.wp.com/apkhome.net/wp-content/uploads/2020/01/Bu-the-Baby-Bunny-Cute-pet-care-game-2.1-MOD-gems-coins.png "Bu the Baby Bunny Cute pet care game 2.1 MOD (gems + coins)Â  APK For Android")
+![Bu the Baby Bunny Cute pet care game 2.1 MOD (gems + coins)  APK For Android](https://i0.wp.com/apkhome.net/wp-content/uploads/2020/01/Bu-the-Baby-Bunny-Cute-pet-care-game-2.1-MOD-gems-coins.png "Bu the Baby Bunny Cute pet care game 2.1 MOD (gems + coins)  APK For Android")
 
   
 
-Bu the Baby Bunny Cute pet care game 2.1 MOD (gems + coins)Â  APK For Android
+Bu the Baby Bunny Cute pet care game 2.1 MOD (gems + coins)  APK For Android
 
 Adopt Bu the cute little rabbit and help her grow by taking care of her, dress her, decorate her house and make her the cutest of rabbits!  
 Discover the city of rabbits with multiple activities and games to keep your pet occupied. In town rabbit you never get bored!
@@ -31,11 +31,11 @@ Bu is part of a cute and imaginary world, she lives in the city of rabbits, a ci
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: gems + coins**
 
-Download Bu the Baby Bunny Cute pet care game 2.1 MOD (gems + coins)Â  APK For Android
+Download Bu the Baby Bunny Cute pet care game 2.1 MOD (gems + coins)  APK For Android
 ======================================================================================
 
 Additional Information

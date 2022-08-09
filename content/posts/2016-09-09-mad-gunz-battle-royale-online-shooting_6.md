@@ -1,14 +1,14 @@
 ---
-title: 'Mad GunZ Battle Royale, online, shooting games 1.9.25 MOD (Mod Ammo)Â  APK For Android'
+title: 'Mad GunZ Battle Royale, online, shooting games 1.9.25 MOD (Mod Ammo)  APK For Android'
 date: 2019-12-06T15:00:00+01:00
 draft: false
 ---
 
-![Mad GunZ Battle Royale, online, shooting games 1.9.25 MOD (Mod Ammo)Â  APK For Android](https://i0.wp.com/apkhome.net/wp-content/uploads/2019/12/Mad-GunZ-Battle-Royale-online-shooting-games.png "Mad GunZ Battle Royale, online, shooting games 1.9.25 MOD (Mod Ammo)Â  APK For Android")
+![Mad GunZ Battle Royale, online, shooting games 1.9.25 MOD (Mod Ammo)  APK For Android](https://i0.wp.com/apkhome.net/wp-content/uploads/2019/12/Mad-GunZ-Battle-Royale-online-shooting-games.png "Mad GunZ Battle Royale, online, shooting games 1.9.25 MOD (Mod Ammo)  APK For Android")
 
   
 
-Mad GunZ Battle Royale, online, shooting games 1.9.25 MOD (Mod Ammo)Â  APK For Android
+Mad GunZ Battle Royale, online, shooting games 1.9.25 MOD (Mod Ammo)  APK For Android
 
 Imagine a little: you wake up, feed your beloved cat and then ... the carnage begins! Where did Mr. Bouldepoil go and ... what is this armored turkey? Does it have anything to do with unicorns? But what is this BINZ? It's up to you to discover this adventure that reinvents online shooter and FPS, free war games and multiplayer online games with pixel-art, block crafting, absurd and cute animals. !
 
@@ -25,11 +25,11 @@ Here is what the Mad GunZ FPS blocking block offers you, a big newcomer in the w
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: Mod Ammo**
 
-Download Mad GunZ Battle Royale, online, shooting games 1.9.25 MOD (Mod Ammo)Â  APK For Android
+Download Mad GunZ Battle Royale, online, shooting games 1.9.25 MOD (Mod Ammo)  APK For Android
 ===============================================================================================
 
 Additional Information

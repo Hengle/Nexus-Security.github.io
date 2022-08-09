@@ -19,7 +19,7 @@ For More Info
 **Supported Android**  
 {4.4 and UP}  
 Supported Android Version:-  
-KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) or UP
+KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) or UP
 
 Download Race Kings 1.20.2140 FULL APK + Data APK For Android
 =============================================================

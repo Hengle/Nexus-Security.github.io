@@ -1,14 +1,14 @@
 ---
-title: 'Nonstop Knight 2 Idle Action RPG 1.7.0 MOD (Mod Energy)Â  APK For Android'
+title: 'Nonstop Knight 2 Idle Action RPG 1.7.0 MOD (Mod Energy)  APK For Android'
 date: 2019-12-30T21:56:00+01:00
 draft: false
 ---
 
-![Nonstop Knight 2 Idle Action RPG 1.7.0 MOD (Mod Energy)Â  APK For Android](https://i1.wp.com/apkhome.net/wp-content/uploads/2019/12/Nonstop-Knight-2-Idle-Action-RPG-1.7.0-MOD-Mod-Energy.png "Nonstop Knight 2 Idle Action RPG 1.7.0 MOD (Mod Energy)Â  APK For Android")
+![Nonstop Knight 2 Idle Action RPG 1.7.0 MOD (Mod Energy)  APK For Android](https://i1.wp.com/apkhome.net/wp-content/uploads/2019/12/Nonstop-Knight-2-Idle-Action-RPG-1.7.0-MOD-Mod-Energy.png "Nonstop Knight 2 Idle Action RPG 1.7.0 MOD (Mod Energy)  APK For Android")
 
   
 
-Nonstop Knight 2 Idle Action RPG 1.7.0 MOD (Mod Energy)Â  APK For Android
+Nonstop Knight 2 Idle Action RPG 1.7.0 MOD (Mod Energy)  APK For Android
 
 Looking for a truly built action RPG for mobile? Do not search anymore ! Inactive RPG action game Nonstop Game Knight 2 has everything it needs for action-packed RPG sessions paired with inactive gameplay: Equipment, skills, epic boss fights - RPG at its best with a game play simple automatic and colorful 3D graphics.
 
@@ -20,11 +20,11 @@ Download now, beat your rival knights and enjoy a perfect blend of casual Rpg du
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: Mod Energy**
 
-Download Nonstop Knight 2 Idle Action RPG 1.7.0 MOD (Mod Energy)Â  APK For Android
+Download Nonstop Knight 2 Idle Action RPG 1.7.0 MOD (Mod Energy)  APK For Android
 ==================================================================================
 
 Additional Information

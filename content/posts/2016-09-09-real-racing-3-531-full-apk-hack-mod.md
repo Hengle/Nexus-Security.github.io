@@ -12,7 +12,7 @@ Real Racing 3 5.3.1 FULL APK + Hack MOD Unlimited Shopping APK For Android
 
 Real Racing 3 is an award-winning franchise that revolutionizes mobile racing games.  
 The application offers integrated purchases. You can disable them in your device settings.  
-Real Racing 3 offers licensed tracks, 39 circuits and 17 real-world sites, 43 cars at the start and more than 140 cars from the biggest manufacturers. Real Time Multiplayer Mode, Social Rankings, Chronos, Night Races and Time Shifted Multiplayer â¢ (TSM) technology to drive anywhere, against anyone and at any time.  
+Real Racing 3 offers licensed tracks, 39 circuits and 17 real-world sites, 43 cars at the start and more than 140 cars from the biggest manufacturers. Real Time Multiplayer Mode, Social Rankings, Chronos, Night Races and Time Shifted Multiplayer ¢ (TSM) technology to drive anywhere, against anyone and at any time.  
 Drive over 140 cars from legendary manufacturers: Ford, Ferrari, Lamborghini, Aston Martin, Mercedes-Benz ... Face up to 43 opponents: an epic experience on a mobile device.  
 Start on 17 prestigious circuits: Silverstone, Hockenheimring, Le Mans 24-hour circuit, Dubai Autodrome ...
 
@@ -21,7 +21,7 @@ For More Info
 **Supported Android**  
 {4.0.3 and UP}  
 Supported Android Version:-  
-Ice Cream Sandwich (4.0.3â"4.0.4)- Jelly Bean (4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) or UP
+Ice Cream Sandwich (4.0.3"4.0.4)- Jelly Bean (4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) or UP
 
 Download Real Racing 3 5.3.1 FULL APK + Hack MOD Unlimited Shopping APK For Android
 ===================================================================================

@@ -10,7 +10,7 @@ draft: false
 
 Another World 1.2.5 MOD (Unlocked) APK For Android
 
-Also known as Out Of This World â¢ and released on more than a dozen platforms since its debut in 1991, Another World â¢ has achieved cult status with critics and sophisticated players for its cinematic effects in scenes graphics, sound and cut.
+Also known as Out Of This World ¢ and released on more than a dozen platforms since its debut in 1991, Another World ¢ has achieved cult status with critics and sophisticated players for its cinematic effects in scenes graphics, sound and cut.
 
 A CAPITAL ADVENTURE  
 The actor plays the role of Lester Knight Chaykin, a young physics researcher. While he is experimenting, his laboratory is struck by light and completely destroyed, projecting him into another world, a world populated by humanoid creatures, where danger can arise at any time.
@@ -20,7 +20,7 @@ You have to escape this strange civilization. You will nevertheless meet a compa
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: Unlocked  
 **

@@ -1,14 +1,14 @@
 ---
-title: 'Dash Quest Heroes 1.5.11 MOD (God Mode + High Exp Gain + More)Â  APK For Android'
+title: 'Dash Quest Heroes 1.5.11 MOD (God Mode + High Exp Gain + More)  APK For Android'
 date: 2020-01-09T16:00:00+01:00
 draft: false
 ---
 
-![Dash Quest Heroes 1.5.11 MOD (God Mode + High Exp Gain + More)Â  APK For Android](https://i2.wp.com/apkhome.net/wp-content/uploads/2020/01/Dash-Quest-Heroes-1.5.11-MOD-God-Mode-High-Exp-Gain-More.png "Dash Quest Heroes 1.5.11 MOD (God Mode + High Exp Gain + More)Â  APK For Android")
+![Dash Quest Heroes 1.5.11 MOD (God Mode + High Exp Gain + More)  APK For Android](https://i2.wp.com/apkhome.net/wp-content/uploads/2020/01/Dash-Quest-Heroes-1.5.11-MOD-God-Mode-High-Exp-Gain-More.png "Dash Quest Heroes 1.5.11 MOD (God Mode + High Exp Gain + More)  APK For Android")
 
   
 
-Dash Quest Heroes 1.5.11 MOD (God Mode + High Exp Gain + More)Â  APK For Android
+Dash Quest Heroes 1.5.11 MOD (God Mode + High Exp Gain + More)  APK For Android
 
 Become a legendary hero and explore a vast world of fantastic adventures with Dash Quest Heroes! The kingdom of Solas is the prey of the demonic Zaru and it is up to the heroes of the world to defeat it. Collect incredible gear and create new items as you go on a journey through hills, cryptic caves, shrouded forests and more! Only the most powerful of heroes will become a legend.
 
@@ -23,11 +23,11 @@ Become a legendary hero and explore a vast world of fantastic adventures with Da
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: God Mode + High Exp Gain + More**
 
-Download Dash Quest Heroes 1.5.11 MOD (God Mode + High Exp Gain + More)Â  APK For Android
+Download Dash Quest Heroes 1.5.11 MOD (God Mode + High Exp Gain + More)  APK For Android
 =========================================================================================
 
 Additional Information

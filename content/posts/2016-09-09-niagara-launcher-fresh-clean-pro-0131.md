@@ -12,7 +12,7 @@ Niagara Launcher fresh & clean Pro 0.13.1 APK For Android
 
 Niagara Launcher gives your phone a whole new look and offers a minimalist experience to help you build a healthy relationship with your phone. You will also be able to discover the latest and best features of Android 10, including smart responses and dark mode.  
 **Characteristics:**  
-\* All applications in a simplified list Â· Simply scroll down one of the edges of the launcher to instantly access all your applications.  
+\* All applications in a simplified list · Simply scroll down one of the edges of the launcher to instantly access all your applications.  
 \* Interact with notifications directly on the home screen.  
 \* Ergonomic efficiency.  
 \* Niagara Launcher is not only light for your phone's resources, but at only a few megabytes, the application takes up very little space.  
@@ -20,7 +20,7 @@ Niagara Launcher gives your phone a whole new look and offers a minimalist exper
 **Supported Android**  
 {5.0 and UP}  
 **Supported Android Version**:-  
-Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 Download Niagara Launcher fresh & clean Pro 0.13.1 APK For Android
 ==================================================================

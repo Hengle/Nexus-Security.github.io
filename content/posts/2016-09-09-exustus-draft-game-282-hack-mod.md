@@ -24,7 +24,7 @@ For More Info
 **Supported Android**  
 {4.4 and UP}  
 Supported Android Version:-  
-KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) or UP
+KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) or UP
 
 Download EXUSTUS DRÄ°FT GAME 2.8.2 Hack MOD Unlimited Money APK For Android
 ===========================================================================

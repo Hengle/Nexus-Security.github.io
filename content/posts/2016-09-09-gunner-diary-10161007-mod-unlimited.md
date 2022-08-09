@@ -1,14 +1,14 @@
 ---
-title: 'Gunner Diary 1.0.16.1007 MOD (Unlimited gold coins)Â  APK For Android'
+title: 'Gunner Diary 1.0.16.1007 MOD (Unlimited gold coins)  APK For Android'
 date: 2019-12-06T09:00:00+01:00
 draft: false
 ---
 
-![Gunner Diary 1.0.16.1007 MOD (Unlimited gold coins)Â  APK For Android](https://i0.wp.com/apkhome.net/wp-content/uploads/2019/12/Gunner-Diary.png "Gunner Diary 1.0.16.1007 MOD (Unlimited gold coins)Â  APK For Android")
+![Gunner Diary 1.0.16.1007 MOD (Unlimited gold coins)  APK For Android](https://i0.wp.com/apkhome.net/wp-content/uploads/2019/12/Gunner-Diary.png "Gunner Diary 1.0.16.1007 MOD (Unlimited gold coins)  APK For Android")
 
   
 
-Gunner Diary 1.0.16.1007 MOD (Unlimited gold coins)Â  APK For Android
+Gunner Diary 1.0.16.1007 MOD (Unlimited gold coins)  APK For Android
 
 Gunner Diary records the story of a legendary hero. He destroyed the forces of evil. He received a lot of bonuses and took advantage of his legendary life. Now you also have the chance to be a legendary gunner. Take your weapon.
 
@@ -21,11 +21,11 @@ Gunner Diary records the story of a legendary hero. He destroyed the forces of e
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: Unlimited gold coins**
 
-Download Gunner Diary 1.0.16.1007 MOD (Unlimited gold coins)Â  APK For Android
+Download Gunner Diary 1.0.16.1007 MOD (Unlimited gold coins)  APK For Android
 ==============================================================================
 
 Additional Information

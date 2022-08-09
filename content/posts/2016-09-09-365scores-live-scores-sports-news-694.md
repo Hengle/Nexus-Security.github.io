@@ -10,12 +10,12 @@ draft: false
 
 365Scores Live Scores & Sports News 6.9.4 Subscribed APK For Android
 
-365Scores keeps you up to date with the latest sports news, results, teams and more ... Join more than 30 million other fans and enjoy live coverage 24 hours a day, 7 days a week from 10 different sports. Including updates to the fastest scores on earth, live stats, breaking news, in\*game news, highlights, live fixtures, tables and more. FIFA World Cup â¢ , NBA, NFL, UEFA Champions League, Premier League, La Liga, MLS, Serie A, Liga MX, MLB and more than 2,000 football leagues, football, tennis, basketball, rugby and other sports.
+365Scores keeps you up to date with the latest sports news, results, teams and more ... Join more than 30 million other fans and enjoy live coverage 24 hours a day, 7 days a week from 10 different sports. Including updates to the fastest scores on earth, live stats, breaking news, in\*game news, highlights, live fixtures, tables and more. FIFA World Cup ¢ , NBA, NFL, UEFA Champions League, Premier League, La Liga, MLS, Serie A, Liga MX, MLB and more than 2,000 football leagues, football, tennis, basketball, rugby and other sports.
 
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 Download 365Scores Live Scores & Sports News 6.9.4 Subscribed APK For Android
 =============================================================================

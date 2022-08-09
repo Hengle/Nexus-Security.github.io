@@ -10,7 +10,7 @@ draft: false
 
 Hungry Dragon 2.0 MOD (Unlimited Money) APK For Android
 
-Light the fire in Hungry Dragon â¢ a fun and frantic arcade game where everyone is on the menu! Control ferocious dragons and fight your way through wings, fire and teeth in a medieval kingdom teeming with delicious prey that knows nothing!
+Light the fire in Hungry Dragon ¢ a fun and frantic arcade game where everyone is on the menu! Control ferocious dragons and fight your way through wings, fire and teeth in a medieval kingdom teeming with delicious prey that knows nothing!
 
 **Features:**  
 FREE DRAGONS  
@@ -32,7 +32,7 @@ HOT AS THE BRAISE
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: Unlimited Money**
 

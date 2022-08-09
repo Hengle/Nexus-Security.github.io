@@ -16,7 +16,7 @@ All this on and from a device such as your iPhone or iPad, using the display key
 **Supported Android**  
 {4.4 and UP}  
 **Supported Android Version**:-  
-KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 Download Minutes in Minutes meeting minutes taker 1.8.5 Paid APK For Android
 ============================================================================

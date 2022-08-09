@@ -14,7 +14,7 @@ Bouncer gives you the option to grant permissions temporarily. Want to mark a lo
 **Supported Android**  
 {7.0 and UP}  
 **Supported Android Version**:-  
-Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 Download Bouncer Temporary App Permissions 1.18.3 Paid APK For Android
 ======================================================================

@@ -1,14 +1,14 @@
 ---
-title: 'Critical Strike CS Counter Terrorist Online FPS 8.6 MOD (Unlimited Bullet + No Reload)Â  APK For Android'
+title: 'Critical Strike CS Counter Terrorist Online FPS 8.6 MOD (Unlimited Bullet + No Reload)  APK For Android'
 date: 2019-12-13T00:28:00+01:00
 draft: false
 ---
 
-![Critical Strike CS Counter Terrorist Online FPS 8.6 MOD (Unlimited Bullet + No Reload)Â  APK For Android](https://i2.wp.com/apkhome.net/wp-content/uploads/2019/12/Critical-Strike-CS-Counter-Terrorist-Online-FPS.png "Critical Strike CS Counter Terrorist Online FPS 8.6 MOD (Unlimited Bullet + No Reload)Â  APK For Android")
+![Critical Strike CS Counter Terrorist Online FPS 8.6 MOD (Unlimited Bullet + No Reload)  APK For Android](https://i2.wp.com/apkhome.net/wp-content/uploads/2019/12/Critical-Strike-CS-Counter-Terrorist-Online-FPS.png "Critical Strike CS Counter Terrorist Online FPS 8.6 MOD (Unlimited Bullet + No Reload)  APK For Android")
 
   
 
-Critical Strike CS Counter Terrorist Online FPS 8.6 MOD (Unlimited Bullet + No Reload)Â  APK For Android
+Critical Strike CS Counter Terrorist Online FPS 8.6 MOD (Unlimited Bullet + No Reload)  APK For Android
 
 Critical Strike is a fast-paced, fast-paced modern multi-player FPS counter-terrorist game.  
 Are you a fan of good old battles against terrorism? Here are some news for you: There is the best first-person 3D shooter in real time.  
@@ -28,11 +28,11 @@ Compete with people around the world and show off your skills.
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: Unlimited Bullet + No Reload**
 
-Download Critical Strike CS Counter Terrorist Online FPS 8.6 MOD (Unlimited Bullet + No Reload)Â  APK For Android
+Download Critical Strike CS Counter Terrorist Online FPS 8.6 MOD (Unlimited Bullet + No Reload)  APK For Android
 =================================================================================================================
 
 Additional Information

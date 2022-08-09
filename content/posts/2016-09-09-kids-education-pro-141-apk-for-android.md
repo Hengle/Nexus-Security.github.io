@@ -10,7 +10,7 @@ draft: false
 
 Kids Education Pro 1.4.1 APK For Android
 
-Let your child's radiance soar through âpreschool educationâ.  
+Let your child's radiance soar through preschool education.  
 A wonderful application for children from 3 to 6 years old, completely safe and without ads, this game turns out to be the best game for children to help your child grow, learn, have fun and even give parents free time. With four fun, colorful and educational sections, "Preschool Education" has 96 puzzles specially designed to help, exercise and develop your child's cognitive skills and general information.  
 **Characteristics:**  
 \* 48 puzzles  
@@ -20,7 +20,7 @@ A wonderful application for children from 3 to 6 years old, completely safe and 
 **Supported Android**  
 {4.1 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 Download Kids Education Pro 1.4.1 APK For Android
 =================================================

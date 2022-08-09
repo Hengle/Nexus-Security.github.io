@@ -1,14 +1,14 @@
 ---
-title: 'Sword Knights Idle RPG 1.3.83 MOD (Unlimited Gold + Magic Stones + Experience)Â  APK For Android'
+title: 'Sword Knights Idle RPG 1.3.83 MOD (Unlimited Gold + Magic Stones + Experience)  APK For Android'
 date: 2020-01-22T17:42:00+01:00
 draft: false
 ---
 
-![Sword Knights Idle RPG 1.3.83 MOD (Unlimited Gold + Magic Stones + Experience)Â  APK For Android](https://i1.wp.com/apkhome.net/wp-content/uploads/2020/01/Sword-Knights-Idle-RPG-1.3.83-MOD-Unlimited-Gold-Magic-Stones-Experience.png "Sword Knights Idle RPG 1.3.83 MOD (Unlimited Gold + Magic Stones + Experience)Â  APK For Android")
+![Sword Knights Idle RPG 1.3.83 MOD (Unlimited Gold + Magic Stones + Experience)  APK For Android](https://i1.wp.com/apkhome.net/wp-content/uploads/2020/01/Sword-Knights-Idle-RPG-1.3.83-MOD-Unlimited-Gold-Magic-Stones-Experience.png "Sword Knights Idle RPG 1.3.83 MOD (Unlimited Gold + Magic Stones + Experience)  APK For Android")
 
   
 
-Sword Knights Idle RPG 1.3.83 MOD (Unlimited Gold + Magic Stones + Experience)Â  APK For Android
+Sword Knights Idle RPG 1.3.83 MOD (Unlimited Gold + Magic Stones + Experience)  APK For Android
 
 **Features:**
 
@@ -38,14 +38,14 @@ Be the first to acquire pleasant and powerful equipment!
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: Unlimited Gold + Magic Stones + Experience**
 
-Download Sword Knights Idle RPG 1.3.83 MOD (Unlimited Gold + Magic Stones + Experience)Â  APK For Android
+Download Sword Knights Idle RPG 1.3.83 MOD (Unlimited Gold + Magic Stones + Experience)  APK For Android
 =========================================================================================================
 
-Â 
+ 
 
 Additional Information
 ----------------------

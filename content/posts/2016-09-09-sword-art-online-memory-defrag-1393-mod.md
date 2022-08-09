@@ -1,17 +1,17 @@
 ---
-title: 'Sword Art Online Memory Defrag 1.39.3 MOD (God Mode)Â  APK For Android'
+title: 'Sword Art Online Memory Defrag 1.39.3 MOD (God Mode)  APK For Android'
 date: 2020-01-01T00:00:00+01:00
 draft: false
 ---
 
-![Sword Art Online Memory Defrag 1.39.3 MOD (God Mode)Â  APK For Android](https://i1.wp.com/apkhome.net/wp-content/uploads/2019/11/Sword-Art-Online-Memory-Defrag.png "Sword Art Online Memory Defrag 1.39.3 MOD (God Mode)Â  APK For Android")
+![Sword Art Online Memory Defrag 1.39.3 MOD (God Mode)  APK For Android](https://i1.wp.com/apkhome.net/wp-content/uploads/2019/11/Sword-Art-Online-Memory-Defrag.png "Sword Art Online Memory Defrag 1.39.3 MOD (God Mode)  APK For Android")
 
   
 
-Sword Art Online Memory Defrag 1.39.3 MOD (God Mode)Â  APK For Android
+Sword Art Online Memory Defrag 1.39.3 MOD (God Mode)  APK For Android
 
 TV anime "Sword Art Online Alicization" broadcast commemoration! An anime-linked event is being held!  
-Action RPG âSword Art Online-Memory Defragmentationâ that allows you to âplay and reliveâ the original story of the original and TV animations, as well as the numerous memories and original stories of Kirito and Asuna.
+Action RPG Sword Art Online-Memory Defragmentation that allows you to play and relive the original story of the original and TV animations, as well as the numerous memories and original stories of Kirito and Asuna.
 
 Clear the stage by defeating the strong enemies you're waiting for while using the various skills of Kirito, Asuna, Alice, Eugeo, and other characters that appear in the originals and anime, with one fingertip. That is the goal of this game.
 
@@ -22,11 +22,11 @@ Multiplayer is packed with ways to enjoy different from solo play, such as colla
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: God Mode**
 
-Download Sword Art Online Memory Defrag 1.39.3 MOD (God Mode)Â  APK For Android
+Download Sword Art Online Memory Defrag 1.39.3 MOD (God Mode)  APK For Android
 ===============================================================================
 
 Additional Information

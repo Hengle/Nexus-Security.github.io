@@ -1,14 +1,14 @@
 ---
-title: 'Efectum Slow Motion Reverse Cam Fast Video Premium 2.0.7Â  APK For Android'
+title: 'Efectum Slow Motion Reverse Cam Fast Video Premium 2.0.7  APK For Android'
 date: 2020-01-17T17:42:00+01:00
 draft: false
 ---
 
-![Efectum Slow Motion Reverse Cam Fast Video Premium 2.0.7Â  APK For Android](https://i1.wp.com/apkhome.net/wp-content/uploads/2020/01/Efectum-Slow-Motion-Reverse-Cam-Fast-Video-Premium-2.0.7.png "Efectum Slow Motion Reverse Cam Fast Video Premium 2.0.7Â  APK For Android")
+![Efectum Slow Motion Reverse Cam Fast Video Premium 2.0.7  APK For Android](https://i1.wp.com/apkhome.net/wp-content/uploads/2020/01/Efectum-Slow-Motion-Reverse-Cam-Fast-Video-Premium-2.0.7.png "Efectum Slow Motion Reverse Cam Fast Video Premium 2.0.7  APK For Android")
 
   
 
-Efectum Slow Motion Reverse Cam Fast Video Premium 2.0.7Â  APK For Android
+Efectum Slow Motion Reverse Cam Fast Video Premium 2.0.7  APK For Android
 
 Create impressive videos with Fast Motion, Slow Motion and Reverse Video montages!  
 Efectum - Video Editor App allows you to edit videos from your gallery or capture them from the app and publish them to Android.  
@@ -24,9 +24,9 @@ Efectum - Video Editor App allows you to edit videos from your gallery or captur
 **Supported Android**  
 {4.3 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
-Download Efectum Slow Motion Reverse Cam Fast Video Premium 2.0.7Â  APK For Android
+Download Efectum Slow Motion Reverse Cam Fast Video Premium 2.0.7  APK For Android
 ===================================================================================
 
 Additional Information

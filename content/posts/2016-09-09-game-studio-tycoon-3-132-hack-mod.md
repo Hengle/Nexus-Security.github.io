@@ -18,9 +18,9 @@ It's a dream for every professional and amateur players to have their own profes
 For More Info
 
 **Supported Android**  
-{3.0Â and UP}  
+{3.0 and UP}  
 Supported Android Version:-  
-Honeycomb (3.0â"3.2.6)- Ice Cream Sandwich (4.0â"4.0.4)- Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) or UP
+Honeycomb (3.0"3.2.6)- Ice Cream Sandwich (4.0"4.0.4)- Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) or UP
 
 Download Game Studio Tycoon 3 1.3.2 Hack MOD Unlimited Money APK For Android
 ============================================================================

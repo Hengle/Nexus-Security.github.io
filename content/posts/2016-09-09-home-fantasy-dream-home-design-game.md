@@ -12,19 +12,19 @@ Home Fantasy Dream Home Design Game 1.0.16 MOD (Unlimited Money) APK For Android
 
 Home Fantasy combines combinations of puzzles with interior design! Twice the fun by destroying cubes and building a dream house
 
-You don't need more to play our creative game and enjoy a perfect experience. but we invite you, as a designer, to show all of your talents and abilities toÂ  furnish and decorate.
+You don't need more to play our creative game and enjoy a perfect experience. but we invite you, as a designer, to show all of your talents and abilities to  furnish and decorate.
 
 **Features:**  
 \*A lot of devious, attractive and exciting puzzles spread over several levels.  
 \*VasteA huge range of color cubes and just as many different gameplays.  
 \*Many boosts for explosive combinations and mind-blowing experiences.  
-\* Dozens of interior decorationsÂ  tasks and conceptual missions to unlock.  
-\* An abundance of large-scale decorationsÂ  locations for each room and house.
+\* Dozens of interior decorations  tasks and conceptual missions to unlock.  
+\* An abundance of large-scale decorations  locations for each room and house.
 
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: Unlimited Money**
 

@@ -10,17 +10,17 @@ draft: false
 
 Real Cricket 18 1.6 Hack MOD APK Unlimited Money Unlocked APK For Android
 
-Real Cricket â¢ is here and there to stay! For the first time, we bring you to our successful cricket franchise and rich cricket experience with Real Cricket â¢ 18! The complete cricket game in the world!  
-For cricket fans all you there, the intensity of a real Cricket â¢ game, now on your mobile !!!  
-Welcome to the most authentic, complete and surreal cricket experience on Android - Real Cricket â¢ 18  
+Real Cricket ¢ is here and there to stay! For the first time, we bring you to our successful cricket franchise and rich cricket experience with Real Cricket ¢ 18! The complete cricket game in the world!  
+For cricket fans all you there, the intensity of a real Cricket ¢ game, now on your mobile !!!  
+Welcome to the most authentic, complete and surreal cricket experience on Android - Real Cricket ¢ 18  
 Now, have an arsenal of bowling deliveries to choose from such as Off Spinner, Arm Ball, Top Spinner, Doosra, Leg Cut, In-Swingers, Slower Balls and many more.  
 Discover the most real and live stages. Each stadium offers a unique sensation and guaranteed to offer a different experience of the other.  
 Play the drummer's eyes and feel the thrill of the ball hitting you at 90 MPH. Bat yourself in the form nerves and show in crucial moments!
 
 **Supported Android**  
-{4.1Â and UP}  
+{4.1 and UP}  
 Supported Android Version:-  
-Jelly Bean (4.1â"4.3.1) - KitKat (4.4â"4.4.4) - Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1)
+Jelly Bean (4.1"4.3.1) - KitKat (4.4"4.4.4) - Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1)
 
 Download Real Cricket 18 1.6 Hack MOD APK Unlimited Money Unlocked APK For Android
 ==================================================================================

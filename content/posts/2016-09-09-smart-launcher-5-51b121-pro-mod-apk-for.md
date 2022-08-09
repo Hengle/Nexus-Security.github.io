@@ -10,7 +10,7 @@ draft: false
 
 Smart Launcher 5 5.1b121 \[Pro Mod\] APK For Android
 
-Speed ââup your device with Smart Launcher 5. The innovative launcher that makes your Android more intuitive and well organized. Find out why it has been downloaded by more than 20 million people.  
+Speed up your device with Smart Launcher 5. The innovative launcher that makes your Android more intuitive and well organized. Find out why it has been downloaded by more than 20 million people.  
 Smart Launcher 5 is completely different from any other launcher on Play Store. It does not rely on the AOSP launcher.  
 \+ Double tap an icon to launch a second application  
 \+ Your list of apps is automatically sorted by categories  

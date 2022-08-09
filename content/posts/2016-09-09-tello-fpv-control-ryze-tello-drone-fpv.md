@@ -17,12 +17,12 @@ Tello FPV is an alternative app to control the Ryze Tello camera drone quadcopte
 \* Circle / orbit autopilot for large-scale orbits  
 \* Lock cap autopilot for cool video footage  
 \* Long distance drone  
-\* Pano 360 takes photos for a 360 Â° panorama (external assembly required)  
+\* Pano 360 takes photos for a 360 ° panorama (external assembly required)  
 \* Automatic photo rotation to correct the tilted horizon  
 **Supported Android**  
 {5.0 and UP}  
 **Supported Android Version**:-  
-Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 Download Tello FPV Control the Ryze Tello drone FPV + RTH 1.6a Patched APK For Android
 ======================================================================================

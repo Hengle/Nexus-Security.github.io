@@ -15,7 +15,7 @@ Verticons is a pack of rectangular card material icons that freely adhere to mat
 \* 3900+ quality icons  
 \* 6000+ thematic applications  
 \* The masking of icons correctly implemented, brings uniformity to non-thematic icons by verticons  
-\* Unique icon shape, not found in Android â¢ Oreo / Pie adaptive icons  
+\* Unique icon shape, not found in Android ¢ Oreo / Pie adaptive icons  
 \* Focus on details and creative design  
 \* Constant user support and updates  
 \* Server-based icon request tool  
@@ -23,7 +23,7 @@ Verticons is a pack of rectangular card material icons that freely adhere to mat
 **Supported Android**  
 {4.1 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 Download Verticons Icon Pack 2.0.3 Patched APK For Android
 ==========================================================

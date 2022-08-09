@@ -12,22 +12,22 @@ Xenowerk 1.5.9 MOD (Unlimited Money) APK For Android
 
 Embody the ultimate hope against the mutant invasion. Experience the benefits of a scientific experiment that turned to disaster.
 
-Xenowerk â¢ is developed by Pixelbite, the creators of Space Marshals. This vertical scrolling shooter challenges your fighting skills in an underground lab. Ride through dilapidated levels in the abyssal depths. With a flashlight for a single guide, you'll never know what's in the dark!
+Xenowerk ¢ is developed by Pixelbite, the creators of Space Marshals. This vertical scrolling shooter challenges your fighting skills in an underground lab. Ride through dilapidated levels in the abyssal depths. With a flashlight for a single guide, you'll never know what's in the dark!
 
 MISSION  
 Your goal is to destroy all the nests and eliminate the mutants to prevent them from developing.  
-Xenowerk â¢ is equipped with 70 increasingly difficult levels. The further you go in the game, the more mutants and extended areas you'll have to clean up.
+Xenowerk ¢ is equipped with 70 increasingly difficult levels. The further you go in the game, the more mutants and extended areas you'll have to clean up.
 
 ARSENAL  
 To ensure your survival on your journey, equip yourself with heavier weapons and thicker armor. Mutants killed lose collectable items that will improve your weapons and armor.
 
 SPECIAL POWERS  
-Xenowerk â¢ offers a selection of special powers to strengthen your attack when needed. Activate one or more simultaneously to eliminate mutants more effectively.
+Xenowerk ¢ offers a selection of special powers to strengthen your attack when needed. Activate one or more simultaneously to eliminate mutants more effectively.
 
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE :Unlimited Money**
 

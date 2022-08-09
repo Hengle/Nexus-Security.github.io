@@ -10,9 +10,9 @@ draft: false
 
 Looney Tunes World of Mayhem Action RPG 17.1.0 MOD (No delay in skills) APK For Android
 
-Join Bugs Bunny, Daffy Duck, Marvin the Martian and all the classic toons to create the biggest âteam of toonsâ in Looney Tunes â¢ World of Mayhem! Collect cartoon characters like Tweety Bird, Taz, Road Runner and more to wage wacky battles in a vibrant Looney Tunes â¢ world.
+Join Bugs Bunny, Daffy Duck, Marvin the Martian and all the classic toons to create the biggest team of toons in Looney Tunes ¢ World of Mayhem! Collect cartoon characters like Tweety Bird, Taz, Road Runner and more to wage wacky battles in a vibrant Looney Tunes ¢ world.
 
-Collect your favorite characters and discover their unique and hilarious fighting abilities. The characters in Road Runner and Wile E. Coyote in Sylvester and Tweety in Porky Pig each have unique abilities and hilarious attacks. Collect all the classic Looney Tunes â¢ cartoon characters in this epic action RPG.
+Collect your favorite characters and discover their unique and hilarious fighting abilities. The characters in Road Runner and Wile E. Coyote in Sylvester and Tweety in Porky Pig each have unique abilities and hilarious attacks. Collect all the classic Looney Tunes ¢ cartoon characters in this epic action RPG.
 
 Build teams with your favorite toons and take down your enemies with iconic pranks and gags! Use classic cartoon rivalries and get bonuses when you beat an iconic enemy, like Sylvester against Tweety or Road Runner against Wile E Coyote.
 
@@ -21,7 +21,7 @@ Fight with turn-based strategy and cartoon combat! The characters unleash bomb a
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: No delay in skills  
 **

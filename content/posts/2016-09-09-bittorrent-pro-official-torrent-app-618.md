@@ -10,7 +10,7 @@ draft: false
 
 BitTorrent Pro Official Torrent App 6.1.8 Mod APK For Android
 
-Find torrents and download them directly to your phone or tablet, ad\*free, with the official BitTorrentÂ® Pro app for Android \* now with battery saving and auto\*shutdown features. Pro of the BitTorrentÂ® app \* from the inventors of the BitTorrent protocol and the uTorrent app, the BitTorrent client is the # 1 torrent client in the world. We know you love media \* and don't want to not be tied to your desk to enjoy it. We've created this handy Android torrent app to help you download and play what you love, wherever you are.  
+Find torrents and download them directly to your phone or tablet, ad\*free, with the official BitTorrent® Pro app for Android \* now with battery saving and auto\*shutdown features. Pro of the BitTorrent® app \* from the inventors of the BitTorrent protocol and the uTorrent app, the BitTorrent client is the # 1 torrent client in the world. We know you love media \* and don't want to not be tied to your desk to enjoy it. We've created this handy Android torrent app to help you download and play what you love, wherever you are.  
 **features:**  
 \* Beautifully light and clean design  
 \* Wifi mode only to save on mobile data  
@@ -23,7 +23,7 @@ Find torrents and download them directly to your phone or tablet, ad\*free, with
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 Download BitTorrent Pro Official Torrent Download App 6.1.8 Mod APK For Android
 ===============================================================================

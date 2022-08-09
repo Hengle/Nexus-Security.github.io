@@ -13,13 +13,13 @@ Defense Legend 3 Future War 2.5.14 MOD (Unlimited Money) APK For Android
 We are happy to present the next part of the Tower Defense game series: Defense Legend 3 - Future War. You will have an exciting experience with Defense Legend 3: Future War.  
 Tower Defense 2 completed: the dark forces are repelled. However, some of them escaped and planned to strengthen their forces to attack our world.
 
-Defense Legend 3: Future War inherits and develops the unique features of Tower Defense\_Defense Legend 2. In addition, Defense Legend 3: Future War has also added new features such as: superheroes, diversity of weapons, diversity of mapsâ¦  
+Defense Legend 3: Future War inherits and develops the unique features of Tower Defense\_Defense Legend 2. In addition, Defense Legend 3: Future War has also added new features such as: superheroes, diversity of weapons, diversity of maps¦  
 The combination of tactical defense and role playing is a special feature of Defense Legend 3: Future War. The player is both the commander who has a strategy and the superheroes who fight the forces of evil.
 
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: Unlimited Money**
 

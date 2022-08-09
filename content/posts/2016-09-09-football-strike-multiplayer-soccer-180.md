@@ -15,7 +15,7 @@ Challenge the world in different online game modes! Hit targets to get points, i
 Customize your scorer and goaltender with tons of unlockable items! Display your style or wear the colors of your team!  
 \+ Play online shooting and free-throw modes!  
 \+ Play against friends or challenge players from around the world!  
-\+ Represent your favorite team! Choose from FC Barcelona, ââBorussia Dortmund, FC Zenit, FC Schalke 04 and more!  
+\+ Represent your favorite team! Choose from FC Barcelona, Borussia Dortmund, FC Zenit, FC Schalke 04 and more!  
 \+ Dominates a long career mode to win medals!  
 \+ Improve your player and equipment to face the world champions!  
 \+ Fast paced gameplay involves continuous action!
@@ -23,7 +23,7 @@ Customize your scorer and goaltender with tons of unlockable items! Display your
 **Supported Android**  
 {4.1 and UP}  
 Supported Android Version:-  
-Jelly Bean (4.1â"4.3.1) - KitKat (4.4â"4.4.4) - Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1)
+Jelly Bean (4.1"4.3.1) - KitKat (4.4"4.4.4) - Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1)
 
 Download Football Strike Multiplayer Soccer 1.8.0 FULL APK For Android
 ======================================================================

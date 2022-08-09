@@ -22,7 +22,7 @@ Lead your armies, develop your civilization around the world, overcome all kinds
 **Supported Android**  
 {4.0 and UP}  
 Supported Android Version:-  
-Ice Cream Sandwich (4.0â"4.0.4)- Jelly Bean (4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) or UP
+Ice Cream Sandwich (4.0"4.0.4)- Jelly Bean (4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) or UP
 
 Download Game of Warriors 1.0.8 Hack MOD APK Unlimited Money APK For Android
 ============================================================================

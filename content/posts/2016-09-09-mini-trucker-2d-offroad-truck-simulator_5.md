@@ -1,14 +1,14 @@
 ---
-title: 'Mini Trucker 2D offroad truck simulator 1.2.3.2 MOD (Unlimited Money)Â  APK For Android'
+title: 'Mini Trucker 2D offroad truck simulator 1.2.3.2 MOD (Unlimited Money)  APK For Android'
 date: 2019-12-06T08:14:00+01:00
 draft: false
 ---
 
-![Mini Trucker 2D offroad truck simulator 1.2.3.2 MOD (Unlimited Money)Â  APK For Android](https://i0.wp.com/apkhome.net/wp-content/uploads/2019/12/Mini-Trucker-2D-offroad-truck-simulator.png "Mini Trucker 2D offroad truck simulator 1.2.3.2 MOD (Unlimited Money)Â  APK For Android")
+![Mini Trucker 2D offroad truck simulator 1.2.3.2 MOD (Unlimited Money)  APK For Android](https://i0.wp.com/apkhome.net/wp-content/uploads/2019/12/Mini-Trucker-2D-offroad-truck-simulator.png "Mini Trucker 2D offroad truck simulator 1.2.3.2 MOD (Unlimited Money)  APK For Android")
 
   
 
-Mini Trucker 2D offroad truck simulator 1.2.3.2 MOD (Unlimited Money)Â  APK For Android
+Mini Trucker 2D offroad truck simulator 1.2.3.2 MOD (Unlimited Money)  APK For Android
 
 The game is a 2D car simulator of freight transport.  
 There are several vehicles with different specifications and load capacity in the game. Two types of equipment are available for each vehicle: dump and flat. In addition, a trailer can be joined in addition.  
@@ -26,11 +26,11 @@ You will have to transfer cargo on asphalt and all terrain.
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: Unlimited Money**
 
-Download Mini Trucker 2D offroad truck simulator 1.2.3.2 MOD (Unlimited Money)Â  APK For Android
+Download Mini Trucker 2D offroad truck simulator 1.2.3.2 MOD (Unlimited Money)  APK For Android
 ================================================================================================
 
 Additional Information

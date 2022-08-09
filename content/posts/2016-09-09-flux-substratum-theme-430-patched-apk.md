@@ -17,7 +17,7 @@ The Flux for Substratum theme engine is designed with perfect graphics and a har
 **Supported Android**  
 {7.0 and UP}  
 Supported Android Version:-  
-Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1)
+Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1)
 
 Download Flux Substratum Theme 4.3.0 Patched APK For Android
 ============================================================

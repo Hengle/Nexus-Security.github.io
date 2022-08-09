@@ -18,7 +18,7 @@ Navigate as if no one is watching. The new Firefox Focus automatically blocks a 
 **Supported Android**  
 {5.0 and UP}  
 **Supported Android Version**:-  
-Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 Download Firefox Focus The privacy browser 8.0.25 Mod APK For Android
 =====================================================================

@@ -47,7 +47,7 @@ A ISO 27001 sugere 114 salvaguardas (ou controles), organizadas nestas 14 seçõ
 *   **Aquisição, desenvolvimento e manutenção de** sistemas - controla a definição dos requisitos de segurança e segurança nos processos de desenvolvimento e suporte
 *   **Relações com fornecedores** - controla o que incluir nos contratos e como monitorar os fornecedores
 *   **Gerenciamento de incidentes de segurança da informação** - controles para relatar eventos e pontos fracos, definir responsabilidades, procedimentos de resposta e coleta de evidências
-*   **Aspectos de segurança da informação do gerenciamento da continuidade de negócios** - controles que exigem o planejamento da continuidade dos negócios, procedimentos, verificação e revisão e redundância de TI
+*   **Aspectos de segurança da informação do gerenciamento da continuidade de negócios** - controles que exigem o planejamento da continuidade dos negócios, procedimentos, verificação e revisão e redundncia de TI
 *   **Conformidade** - controles que exigem a identificação de leis e regulamentos aplicáveis, proteção de propriedade intelectual, proteção de dados pessoais e revisão da segurança das informações
 
 Como você notará, uma parte menor desses controles está relacionada à TI - a maioria deles é focada em questões organizacionais, que são resolvidas com a criação de várias políticas e procedimentos de segurança - por exemplo, Política de uso aceitável, Política de classificação, Política BYOD, Política de acesso, etc.
@@ -59,7 +59,7 @@ Treinamento e conscientização de segurança
 
 A regra mais importante sobre treinamento e conscientização é que eles devem ser executados paralelamente à implementação de quaisquer salvaguardas (tanto organizacionais quanto baseadas em tecnologia). Por exemplo, se você publicar uma nova Política de Classificação sem explicar aos seus funcionários por que é importante e como classificar seus documentos, essa política nunca se aplicará à sua empresa; Da mesma forma, se você implementar um novo software para rastrear incidentes, sem conhecimento e treinamento, provavelmente não será usado demais.
 
-A diferença básica entre treinamento e conscientização é a seguinte: o treinamento explica aos funcionários como realizar uma determinada atividade, enquanto a conscientização diz a eles por que isso é importante - ambos têm a mesma importância e devem ser realizados em equilíbrio.
+A diferença básica entre treinamento e conscientização é a seguinte: o treinamento explica aos funcionários como realizar uma determinada atividade, enquanto a conscientização diz a eles por que isso é importante - ambos têm a mesma importncia e devem ser realizados em equilíbrio.
 
 Aqui estão alguns **métodos** de **treinamento que** você pode usar:
 

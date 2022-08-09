@@ -12,7 +12,7 @@ Sniper 3D Assassin Fun Gun Shooting Games Free 3.2.7 MOD (Unlimited Money) APK F
 
 AIM and SHOOT! Download now for free one of the best FPS shooting games. Clash with the criminals on different scenarios full of action.
 
-Sniper 3D AssassinÂ® in 7 words: great gameplay, awesome visuals and entertaining missions. And best of all? It's a free fps game to pass the time! Defend the victims from kidnappings to bomb attacks to a Vegas hitman: hostage survival is critical!
+Sniper 3D Assassin® in 7 words: great gameplay, awesome visuals and entertaining missions. And best of all? It's a free fps game to pass the time! Defend the victims from kidnappings to bomb attacks to a Vegas hitman: hostage survival is critical!
 
 **Features:**  
 \* Ultra realistic 3D graphics and cool animations  
@@ -26,7 +26,7 @@ Sniper 3D AssassinÂ® in 7 words: great gameplay, awesome visuals and entertain
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: Unlimited Money**
 

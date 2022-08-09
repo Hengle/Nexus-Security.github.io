@@ -12,7 +12,7 @@ European War 4 Napoleon 1.4.18 MOD (Unlimited Money) APK For Android
 
 Your Excellency, Commander! Welcome to the 18th century, the age of Napoleon. He is a whole  
 new game mode, adding general skills and a new point system, and there are more than 200 famous  
-general to choose including ãNapoleon, Murat, Wellington, Nelson, Kutuzov, Washingtonã and so on.  
+general to choose including ãNapoleon, Murat, Wellington, Nelson, Kutuzov, Washingtonã and so on.  
 Every general can come from the ranks, from a soldier to a marshal, from a citizen to a  
 Emperor.
 
@@ -27,7 +27,7 @@ articles in shops, general rental in taverns and exchanges on supply contracts.
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: Unlimited Money**
 

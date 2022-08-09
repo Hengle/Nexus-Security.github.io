@@ -10,12 +10,12 @@ draft: false
 
 SkyView Explore the Universe 3.6.3 Patched APK For Android
 
-You do not need to be an astronomer to find stars or constellations in the sky, simply open SkyViewÂ® and let it guide you to their location and identify them. SkyViewÂ® is a beautiful and intuitive star\*gazing application that uses your camera to pinpoint and accurately identify celestial objects in the sky, day or night. Find the 88 constellations that appear and disappear by sweeping the sky, locate all the planets in our solar system, discover distant galaxies, and watch overflights of satellites.
+You do not need to be an astronomer to find stars or constellations in the sky, simply open SkyView® and let it guide you to their location and identify them. SkyView® is a beautiful and intuitive star\*gazing application that uses your camera to pinpoint and accurately identify celestial objects in the sky, day or night. Find the 88 constellations that appear and disappear by sweeping the sky, locate all the planets in our solar system, discover distant galaxies, and watch overflights of satellites.
 
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 Download SkyView Explore the Universe 3.6.3 Patched APK For Android
 ===================================================================

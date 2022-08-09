@@ -1,14 +1,14 @@
 ---
-title: 'Weed Inc Idle Tycoon 2.12 MOD (Unlimited Money + Gems + Free Shopping)Â  APK For Android'
+title: 'Weed Inc Idle Tycoon 2.12 MOD (Unlimited Money + Gems + Free Shopping)  APK For Android'
 date: 2019-12-08T21:00:00+01:00
 draft: false
 ---
 
-![Weed Inc Idle Tycoon 2.12 MOD (Unlimited Money + Gems + Free Shopping)Â  APK For Android](https://i1.wp.com/apkhome.net/wp-content/uploads/2019/12/Weed-Inc-Idle-Tycoon.png "Weed Inc Idle Tycoon 2.12 MOD (Unlimited Money + Gems + Free Shopping)Â  APK For Android")
+![Weed Inc Idle Tycoon 2.12 MOD (Unlimited Money + Gems + Free Shopping)  APK For Android](https://i1.wp.com/apkhome.net/wp-content/uploads/2019/12/Weed-Inc-Idle-Tycoon.png "Weed Inc Idle Tycoon 2.12 MOD (Unlimited Money + Gems + Free Shopping)  APK For Android")
 
   
 
-Weed Inc Idle Tycoon 2.12 MOD (Unlimited Money + Gems + Free Shopping)Â  APK For Android
+Weed Inc Idle Tycoon 2.12 MOD (Unlimited Money + Gems + Free Shopping)  APK For Android
 
 It's time to grow! Collect and enhance your favorite weed varieties such as Sour Diesel, Grand Daddy Purple and Trainwreck in this new strategy game. Manage all stages of production from the growing room, the treatment room and your showcase. Hire managers, improve your strains and expand to new locations while building your weed empire.
 
@@ -21,11 +21,11 @@ It's time to grow! Collect and enhance your favorite weed varieties such as Sour
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: Unlimited Money + Gems + Free Shopping**
 
-Download Weed Inc Idle Tycoon 2.12 MOD (Unlimited Money + Gems + Free Shopping)Â  APK For Android
+Download Weed Inc Idle Tycoon 2.12 MOD (Unlimited Money + Gems + Free Shopping)  APK For Android
 =================================================================================================
 
 Additional Information

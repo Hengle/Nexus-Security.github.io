@@ -1,14 +1,14 @@
 ---
-title: 'Earn to Die 2 1.4.18 MOD (Free Shopping)Â  APK For Android'
+title: 'Earn to Die 2 1.4.18 MOD (Free Shopping)  APK For Android'
 date: 2019-12-13T17:56:00+01:00
 draft: false
 ---
 
-![Earn to Die 2 1.4.18 MOD (Free Shopping)Â  APK For Android](https://i1.wp.com/apkhome.net/wp-content/uploads/2019/12/Earn-to-Die-2.png "Earn to Die 2 1.4.18 MOD (Free Shopping)Â  APK For Android")
+![Earn to Die 2 1.4.18 MOD (Free Shopping)  APK For Android](https://i1.wp.com/apkhome.net/wp-content/uploads/2019/12/Earn-to-Die-2.png "Earn to Die 2 1.4.18 MOD (Free Shopping)  APK For Android")
 
   
 
-Earn to Die 2 1.4.18 MOD (Free Shopping)Â  APK For Android
+Earn to Die 2 1.4.18 MOD (Free Shopping)  APK For Android
 
 Drive your car into an apocalyptic world infested with zombies in this awesome sequel to the Earn to Die game that made the charts!
 
@@ -26,11 +26,11 @@ Unlock and upgrade 10 different vehicles, including a sports car, a fire truck a
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: Free Shopping**
 
-Download Earn to Die 2 1.4.18 MOD (Free Shopping)Â  APK For Android
+Download Earn to Die 2 1.4.18 MOD (Free Shopping)  APK For Android
 ===================================================================
 
 Additional Information

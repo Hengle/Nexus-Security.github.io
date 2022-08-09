@@ -12,7 +12,7 @@ Eternium 1.4.42 APK + MOD (Unlimited Money + Rubies) APK For Android
 
 Eternium is an incredibly fun and beautifully designed action RPG reminiscent of the great classics.
 
-Eternium sets itself apart from other mobile action RPGs with its effortless âtap to moveâ and innovative âswipe to castâ commands, and its user-friendly âno paywalls, never pay to winâ philosophy.
+Eternium sets itself apart from other mobile action RPGs with its effortless tap to move and innovative swipe to cast commands, and its user-friendly no paywalls, never pay to win philosophy.
 
 With the exception of a few online-only features, the game can also be played offline once the content has finished downloading.
 
@@ -25,7 +25,7 @@ In the fall of 2017, major new features are in advanced stages of development, i
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: Unlimited Money + Rubies**
 

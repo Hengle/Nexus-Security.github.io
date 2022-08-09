@@ -1,14 +1,14 @@
 ---
-title: 'Toy Blast 6861 MOD (Unlimited Lives + Boosters + 100 Moves)Â  APK For Android'
+title: 'Toy Blast 6861 MOD (Unlimited Lives + Boosters + 100 Moves)  APK For Android'
 date: 2020-01-21T19:28:00+01:00
 draft: false
 ---
 
-![Toy Blast 6861 MOD (Unlimited Lives + Boosters + 100 Moves)Â  APK For Android](https://i1.wp.com/apkhome.net/wp-content/uploads/2020/01/Toy-Blast-6861-MOD-Unlimited-Lives-Boosters-100-Moves.png "Toy Blast 6861 MOD (Unlimited Lives + Boosters + 100 Moves)Â  APK For Android")
+![Toy Blast 6861 MOD (Unlimited Lives + Boosters + 100 Moves)  APK For Android](https://i1.wp.com/apkhome.net/wp-content/uploads/2020/01/Toy-Blast-6861-MOD-Unlimited-Lives-Boosters-100-Moves.png "Toy Blast 6861 MOD (Unlimited Lives + Boosters + 100 Moves)  APK For Android")
 
   
 
-Toy Blast 6861 MOD (Unlimited Lives + Boosters + 100 Moves)Â  APK For Android
+Toy Blast 6861 MOD (Unlimited Lives + Boosters + 100 Moves)  APK For Android
 
 VIVE TOY BLAST! EVERY DAY, MILLIONS OF PLAYERS ARE ENTHUSIASTIC FOR THIS FANTASTIC THINKING AND ASSOCIATION GAME!
 
@@ -31,11 +31,11 @@ Live your most beautiful adventures in an infinity of episodes by traveling thro
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: Unlimited Lives + Boosters + 100 Moves**
 
-Download Toy Blast 6861 MOD (Unlimited Lives + Boosters + 100 Moves)Â  APK For Android
+Download Toy Blast 6861 MOD (Unlimited Lives + Boosters + 100 Moves)  APK For Android
 ======================================================================================
 
 Additional Information

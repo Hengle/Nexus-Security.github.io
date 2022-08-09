@@ -10,14 +10,14 @@ draft: false
 
 Kings of Soccer Multiplayer Football Game 1.1.6 APK + Hack MOD APK For Android
 
-Join Barcelona, ââPSG, Arsenal, Real Madrid, Juventus or another exceptional football club to lead him to victory in the 3D multiplayer football game: Kings of Soccer. Create your own dream team and compete against your friends or become the manager of your favorite club and play online epic multiplayer football matches.  
+Join Barcelona, PSG, Arsenal, Real Madrid, Juventus or another exceptional football club to lead him to victory in the 3D multiplayer football game: Kings of Soccer. Create your own dream team and compete against your friends or become the manager of your favorite club and play online epic multiplayer football matches.  
 In Kings of Soccer, you have to carefully manage and coach your team, make your players stars, avoid injuries, score goals and make your way from the depths of the rankings to the highest level of international football. intense challenges online.  
 Choose the best training and strategy to defeat your opponents and win competitive multiplayer matches by improving the skills of your players. Get cards that will help you improve stats for your stars and your entire team to become the ultimate King of Soccer!
 
 **Supported Android**  
 {4.1 and UP}  
 Supported Android Version:-  
-Jelly Bean (4.1â"4.3.1) - KitKat (4.4â"4.4.4) - Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1)
+Jelly Bean (4.1"4.3.1) - KitKat (4.4"4.4.4) - Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1)
 
 APK + Hack MOD Unlimited Money
 

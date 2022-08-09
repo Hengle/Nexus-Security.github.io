@@ -1,14 +1,14 @@
 ---
-title: 'Adaptive Icon Pack 1.1.5 PatchedÂ  APK For Android'
+title: 'Adaptive Icon Pack 1.1.5 Patched  APK For Android'
 date: 2019-12-03T21:28:00+01:00
 draft: false
 ---
 
-![Adaptive Icon Pack 1.1.5 PatchedÂ  APK For Android](https://i0.wp.com/apkhome.net/wp-content/uploads/2019/12/Adaptive-Icon-Pack-1.1.5-Patched.png "Adaptive Icon Pack 1.1.5 PatchedÂ  APK For Android")
+![Adaptive Icon Pack 1.1.5 Patched  APK For Android](https://i0.wp.com/apkhome.net/wp-content/uploads/2019/12/Adaptive-Icon-Pack-1.1.5-Patched.png "Adaptive Icon Pack 1.1.5 Patched  APK For Android")
 
   
 
-Adaptive Icon Pack 1.1.5 PatchedÂ  APK For Android
+Adaptive Icon Pack 1.1.5 Patched  APK For Android
 
 Adaptive Icon Pack is an icon pack that allows Launcher to display adaptive icons on all devices running Android Oreo or later. Adaptive Icon Pack is intentionally designed not to have a style or theme, but rather to offer Adaptive Icon variants of your most popular apps that have the look and feel of being designed by the developer of the app. 'origin.  
 **features:**  
@@ -23,9 +23,9 @@ Adaptive Icon Pack is an icon pack that allows Launcher to display adaptive icon
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
-Download Adaptive Icon Pack 1.1.5 PatchedÂ  APK For Android
+Download Adaptive Icon Pack 1.1.5 Patched  APK For Android
 ===========================================================
 
 Additional Information

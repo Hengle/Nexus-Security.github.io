@@ -16,7 +16,7 @@ The fight and action will rage upon the arrival of a new army on the battlefield
 **Supported Android**  
 {2.3.3 and UP}  
 Supported Android Version:-  
-Ice Cream Sandwich (4.0â"4.0.4) - Jelly Bean (4.1â"4.3.1) - KitKat (4.4â"4.4.4) - Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1)
+Ice Cream Sandwich (4.0"4.0.4) - Jelly Bean (4.1"4.3.1) - KitKat (4.4"4.4.4) - Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1)
 
 APK + MOD Unlimited Money
 

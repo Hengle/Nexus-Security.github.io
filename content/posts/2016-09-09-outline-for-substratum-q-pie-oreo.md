@@ -16,7 +16,7 @@ Outline for Substratum Q Pie Oreo Nougat 36 Patched APK For Android
 **Supported Android**  
 {7.1 and UP}  
 **Supported Android Version**:-  
-Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 Download Outline for Substratum Q Pie Oreo Nougat 36 Patched APK For Android
 ============================================================================

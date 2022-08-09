@@ -18,9 +18,9 @@ We are adding all new favorite players to fans who have never been in the Derby 
 **Supported Android**  
 {4.0.3 and UP}  
 Supported Android Version:-  
-Ice Cream Sandwich (4.0.3â"4.0.4) - Jelly Bean (4.1â"4.3.1) - KitKat (4.4â"4.4.4) - Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1)
+Ice Cream Sandwich (4.0.3"4.0.4) - Jelly Bean (4.1"4.3.1) - KitKat (4.4"4.4.4) - Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1)
 
-Hack MODÂ Unlimited Money + Bucks
+Hack MOD Unlimited Money + Bucks
 
 Download MLB Home Run Derby 18 6.0.5 Hack MOD APK For Android
 =============================================================

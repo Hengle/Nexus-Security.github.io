@@ -1,14 +1,14 @@
 ---
-title: 'PROJECT OFFROAD 20 6 MOD (Unlimited gold coins)Â  APK For Android'
+title: 'PROJECT OFFROAD 20 6 MOD (Unlimited gold coins)  APK For Android'
 date: 2020-01-13T17:28:00+01:00
 draft: false
 ---
 
-![PROJECT OFFROAD 20 6 MOD (Unlimited gold coins)Â  APK For Android](https://i1.wp.com/apkhome.net/wp-content/uploads/2020/01/PROJECT-OFFROAD-20-6-MOD-Unlimited-gold-coins.png "PROJECT OFFROAD 20 6 MOD (Unlimited gold coins)Â  APK For Android")
+![PROJECT OFFROAD 20 6 MOD (Unlimited gold coins)  APK For Android](https://i1.wp.com/apkhome.net/wp-content/uploads/2020/01/PROJECT-OFFROAD-20-6-MOD-Unlimited-gold-coins.png "PROJECT OFFROAD 20 6 MOD (Unlimited gold coins)  APK For Android")
 
   
 
-PROJECT OFFROAD 20 6 MOD (Unlimited gold coins)Â  APK For Android
+PROJECT OFFROAD 20 6 MOD (Unlimited gold coins)  APK For Android
 
 Is developed on the basis of reality. Fascinating graphics and realistic physics  
 are waiting for you to explore them.
@@ -23,11 +23,11 @@ Due to the detailed graphics options, you can have custom settings tailored to y
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: Unlimited gold coins**
 
-Download PROJECT OFFROAD 20 6 MOD (Unlimited gold coins)Â  APK For Android
+Download PROJECT OFFROAD 20 6 MOD (Unlimited gold coins)  APK For Android
 ==========================================================================
 
 Additional Information

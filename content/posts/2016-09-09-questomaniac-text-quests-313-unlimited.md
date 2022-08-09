@@ -10,7 +10,7 @@ draft: false
 
 Questomaniac Text Quests 3.1.3 (Unlimited Money) APK For Android
 
-Over 200 quests, 15 genres, 10 authors and a sea of âânew emotions!
+Over 200 quests, 15 genres, 10 authors and a sea of new emotions!
 
 Control the fate of the heroes of incredible stories with the swipe of your finger! Find out what will happen if you combine the elements of text quests, arcades and RPGs into an entire game. Constant addition of new quests. Forget boredom, because you will always have a collection of exciting games with you!
 
@@ -27,7 +27,7 @@ For the moment, the application contains dozens of stories, made up of hundreds 
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: Unlimited Money**
 

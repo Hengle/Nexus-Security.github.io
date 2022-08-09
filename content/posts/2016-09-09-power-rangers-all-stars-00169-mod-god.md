@@ -17,7 +17,7 @@ Ranger Operators Red, Yellow, and Blue (from Power Rangers RPM) are sent to Cori
 
 Ally with Power Ranger from throughout history, create the ultimate Ranger team, and thwart the monsters and their evil machinations!
 
-**Â Features**  
+** Features**  
 \* From MMPR to Samurai, join over 60 Rangers in your quest to vanquish evil!  
 \* Pilot mighty Megazords to defeat your foes!  
 \* Create tactical Ranger teams for Dimensional Rift and Dimensional Exploration!  
@@ -27,7 +27,7 @@ Ally with Power Ranger from throughout history, create the ultimate Ranger team,
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: God Mode + One Hit**
 

@@ -18,7 +18,7 @@ Membership Updates: Get the most current membership throughout the 2018 season a
 **Supported Android**  
 {5.1 and UP}  
 Supported Android Version:-  
-Lollipop (5.1â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1)
+Lollipop (5.1"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1)
 
 Download RBI Baseball 18 1.0.1 Hack MOD APK + Data APK For Android
 ==================================================================

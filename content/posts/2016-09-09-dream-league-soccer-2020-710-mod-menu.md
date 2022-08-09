@@ -10,10 +10,10 @@ draft: false
 
 Dream League Soccer 2020 7.10 MOD (Menu) APK For Android
 
-Dream League Soccer 2020 puts you in the heart of the action with a new look and new features! Build your dream team from over 3,500 players licensed under FIFPro â¢ and compete against the best football clubs in the world! Travel 8 divisions while enjoying fully captured player moves, immersive in-game feedback, team customizations, and more. Beautiful play has never been so good!
+Dream League Soccer 2020 puts you in the heart of the action with a new look and new features! Build your dream team from over 3,500 players licensed under FIFPro ¢ and compete against the best football clubs in the world! Travel 8 divisions while enjoying fully captured player moves, immersive in-game feedback, team customizations, and more. Beautiful play has never been so good!
 
 **Features:**  
-\* Build and develop your dream team from more than 3,500 players under FIFPro â¢ license  
+\* Build and develop your dream team from more than 3,500 players under FIFPro ¢ license  
 \* Kicks, tackles, celebrations and goalkeeper saves fully captured on the move provide unrivaled realism  
 \* Achieve legendary status by crossing 8 divisions and participating in over 10 cup competitions  
 \* Build your football empire from your own stadium to medical, commercial and training facilities  
@@ -26,7 +26,7 @@ Dream League Soccer 2020 puts you in the heart of the action with a new look and
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: Menu  
 **

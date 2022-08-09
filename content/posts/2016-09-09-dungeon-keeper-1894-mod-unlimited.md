@@ -19,12 +19,12 @@ Trolls to bile demons, mistresses and warlocks - deploy your army of villains an
 Maximize your defenses to counteract invaders with perfectly designed traps and dungeon design. Build rooms such as the torture chamber or the dark library to give the assailants painful and shocking surprises.
 
 \* IT'S GOOD TO BE BAD  
-Attack enemy dungeons and plunder their resources. Deploy your forces and face spike traps, cannons, toxic spores and more. Too many enemies? Turn them into chickens! Master the Hand of Evil â¢ to unleash devastating spell attacks.
+Attack enemy dungeons and plunder their resources. Deploy your forces and face spike traps, cannons, toxic spores and more. Too many enemies? Turn them into chickens! Master the Hand of Evil ¢ to unleash devastating spell attacks.
 
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: Unlimited Jevels  
 **

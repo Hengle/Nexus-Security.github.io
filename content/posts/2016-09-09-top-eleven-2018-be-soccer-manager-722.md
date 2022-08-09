@@ -22,7 +22,7 @@ Start your club from scratch and give it a name. Top Eleven offers you the abili
 **Supported Android**  
 {4.1 and UP}  
 Supported Android Version:-  
-Jelly Bean (4.1â"4.3.1) - KitKat (4.4â"4.4.4) - Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1)
+Jelly Bean (4.1"4.3.1) - KitKat (4.4"4.4.4) - Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1)
 
 Download Top Eleven 2018 Be a Soccer Manager 7.2.2 APK For Android
 ==================================================================

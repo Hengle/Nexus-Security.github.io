@@ -1,14 +1,14 @@
 ---
-title: 'LightSlinger Heroes Puzzle RPG 3.0.2 MOD (God Mode + One Hit Kill)Â  APK For Android'
+title: 'LightSlinger Heroes Puzzle RPG 3.0.2 MOD (God Mode + One Hit Kill)  APK For Android'
 date: 2020-01-12T05:00:00+01:00
 draft: false
 ---
 
-![LightSlinger Heroes Puzzle RPG 3.0.2 MOD (God Mode + One Hit Kill)Â  APK For Android](https://i1.wp.com/apkhome.net/wp-content/uploads/2020/01/LightSlinger-Heroes-Puzzle-RPG-3.0.2-MOD-God-Mode-One-Hit-Kill.png "LightSlinger Heroes Puzzle RPG 3.0.2 MOD (God Mode + One Hit Kill)Â  APK For Android")
+![LightSlinger Heroes Puzzle RPG 3.0.2 MOD (God Mode + One Hit Kill)  APK For Android](https://i1.wp.com/apkhome.net/wp-content/uploads/2020/01/LightSlinger-Heroes-Puzzle-RPG-3.0.2-MOD-God-Mode-One-Hit-Kill.png "LightSlinger Heroes Puzzle RPG 3.0.2 MOD (God Mode + One Hit Kill)  APK For Android")
 
   
 
-LightSlinger Heroes Puzzle RPG 3.0.2 MOD (God Mode + One Hit Kill)Â  APK For Android
+LightSlinger Heroes Puzzle RPG 3.0.2 MOD (God Mode + One Hit Kill)  APK For Android
 
 Light Archers combines puzzle game and JDR-adventure. Shoot and combine at least 3 bubbles to attack legendary monsters in this breathtaking JDR puzzle. Collect heroes to create the ultimate team. Face your friends in tactical combat. Form guilds and attack bosses in real-time multiplayer raids. Go on a quest and become the legendary Archer of Light!
 
@@ -27,11 +27,11 @@ Invite friends to join a guild. Share gifts, complete guild quests, and strategi
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: God Mode + One Hit Kill**
 
-Download LightSlinger Heroes Puzzle RPG 3.0.2 MOD (God Mode + One Hit Kill)Â  APK For Android
+Download LightSlinger Heroes Puzzle RPG 3.0.2 MOD (God Mode + One Hit Kill)  APK For Android
 =============================================================================================
 
 Additional Information

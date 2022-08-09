@@ -10,14 +10,14 @@ draft: false
 
 Tokaido 1.16 MOD + DATA (full version) APK For Android
 
-You are a traveler, in the heart of ancient Japan, traveling the legendary East Sea route from Kyoto to Edo, trying to make the hike as fulfilling as possible. Discover the most magnificent landscapes, taste many culinary specialties, acquire rare and precious memories, bathe in hot springs, visit temples and meet other travelersâ¦. Tokaido is a rite of passage for the heart, walking in serenity and contemplation.  
+You are a traveler, in the heart of ancient Japan, traveling the legendary East Sea route from Kyoto to Edo, trying to make the hike as fulfilling as possible. Discover the most magnificent landscapes, taste many culinary specialties, acquire rare and precious memories, bathe in hot springs, visit temples and meet other travelers¦. Tokaido is a rite of passage for the heart, walking in serenity and contemplation.  
 But do not be fooled by the peaceful aspect of the trip, because you will have to be stronger than your opponents if you want to win!  
 Whether you sneak in as a messenger, geisha or even a ronin, you have to discover as many hidden wonders as possible along the way, so that your trip is the most satisfying of all!
 
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: full version  
 **

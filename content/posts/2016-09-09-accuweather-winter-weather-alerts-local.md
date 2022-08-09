@@ -10,12 +10,12 @@ draft: false
 
 AccuWeather Winter weather alerts & local forecast 6.1.2 Unlocked APK For Android
 
-Get live weather forecasts this winter along with accurate storm warnings and weather information with AccuWeather \* a superior precision â¢ you can count on. Accurate weather forecasts, real\*time alerts and severe weather warnings are available upon request. Get today's weather forecasts, snow alerts, live radar and more! Get ready for the winter season with AccuWeather weather alerts with superior accuracy. Be prepared with daily forecasts or sudden weather changes with live alerts and accurate weather forecasts. So, whether it's windy, rainy or even snowy, you can stay one step ahead this winter with the AccuWeather Weather Radar.
+Get live weather forecasts this winter along with accurate storm warnings and weather information with AccuWeather \* a superior precision ¢ you can count on. Accurate weather forecasts, real\*time alerts and severe weather warnings are available upon request. Get today's weather forecasts, snow alerts, live radar and more! Get ready for the winter season with AccuWeather weather alerts with superior accuracy. Be prepared with daily forecasts or sudden weather changes with live alerts and accurate weather forecasts. So, whether it's windy, rainy or even snowy, you can stay one step ahead this winter with the AccuWeather Weather Radar.
 
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 Download AccuWeather Winter weather alerts & local forecast 6.1.2 Unlocked APK For Android
 ==========================================================================================

@@ -1,14 +1,14 @@
 ---
-title: 'Castle Burn RTS Revolution 1.6.4 MOD (Diamonds)Â  APK For Android'
+title: 'Castle Burn RTS Revolution 1.6.4 MOD (Diamonds)  APK For Android'
 date: 2020-02-03T18:28:00+01:00
 draft: false
 ---
 
-![Castle Burn RTS Revolution 1.6.4 MOD (Diamonds)Â  APK For Android](https://i1.wp.com/apkhome.net/wp-content/uploads/2020/02/Castle-Burn-RTS-Revolution-1.6.4-MOD-Diamonds.png "Castle Burn RTS Revolution 1.6.4 MOD (Diamonds)Â  APK For Android")
+![Castle Burn RTS Revolution 1.6.4 MOD (Diamonds)  APK For Android](https://i1.wp.com/apkhome.net/wp-content/uploads/2020/02/Castle-Burn-RTS-Revolution-1.6.4-MOD-Diamonds.png "Castle Burn RTS Revolution 1.6.4 MOD (Diamonds)  APK For Android")
 
   
 
-Castle Burn RTS Revolution 1.6.4 MOD (Diamonds)Â  APK For Android
+Castle Burn RTS Revolution 1.6.4 MOD (Diamonds)  APK For Android
 
 Welcome to Castle Burn, the whimsical STR game with competitive PvP battles!  
 Whirlpools of Fire, Canon Towers, Vikings, Dragons ... Choose the types of units that will fight alongside great Heroes, in the destruction of the enemy castle!
@@ -41,11 +41,11 @@ Get rewards based on the end of season score.
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: Diamonds**
 
-Download Castle Burn RTS Revolution 1.6.4 MOD (Diamonds)Â  APK For Android
+Download Castle Burn RTS Revolution 1.6.4 MOD (Diamonds)  APK For Android
 ==========================================================================
 
 Additional Information

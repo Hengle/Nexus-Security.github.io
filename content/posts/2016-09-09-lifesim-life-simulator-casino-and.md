@@ -1,14 +1,14 @@
 ---
-title: 'LifeSim Life Simulator Casino and Business Games 1.3.7 MOD (Unlimited Energy + Money)Â  APK For Android'
+title: 'LifeSim Life Simulator Casino and Business Games 1.3.7 MOD (Unlimited Energy + Money)  APK For Android'
 date: 2020-01-17T00:14:00+01:00
 draft: false
 ---
 
-![LifeSim Life Simulator Casino and Business Games 1.3.7 MOD (Unlimited Energy + Money)Â  APK For Android](https://i2.wp.com/apkhome.net/wp-content/uploads/2020/01/LifeSim-Life-Simulator-Casino-and-Business-Games-1.3.7-MOD-Unlimited-Energy-Money.png "LifeSim Life Simulator Casino and Business Games 1.3.7 MOD (Unlimited Energy + Money)Â  APK For Android")
+![LifeSim Life Simulator Casino and Business Games 1.3.7 MOD (Unlimited Energy + Money)  APK For Android](https://i2.wp.com/apkhome.net/wp-content/uploads/2020/01/LifeSim-Life-Simulator-Casino-and-Business-Games-1.3.7-MOD-Unlimited-Energy-Money.png "LifeSim Life Simulator Casino and Business Games 1.3.7 MOD (Unlimited Energy + Money)  APK For Android")
 
   
 
-LifeSim Life Simulator Casino and Business Games 1.3.7 MOD (Unlimited Energy + Money)Â  APK For Android
+LifeSim Life Simulator Casino and Business Games 1.3.7 MOD (Unlimited Energy + Money)  APK For Android
 
 Tired of your daily routine? Have you always dreamed of becoming someone else?  
 Remember your most ambitious projects, use your potential to the fullest and make your wildest dreams come true in LifeSim! ????
@@ -26,12 +26,12 @@ What career path will you follow? You can become a successful politician, an amb
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: Unlimited Energy + Money  
 **
 
-Download LifeSim Life Simulator Casino and Business Games 1.3.7 MOD (Unlimited Energy + Money)Â  APK For Android
+Download LifeSim Life Simulator Casino and Business Games 1.3.7 MOD (Unlimited Energy + Money)  APK For Android
 ================================================================================================================
 
 Additional Information

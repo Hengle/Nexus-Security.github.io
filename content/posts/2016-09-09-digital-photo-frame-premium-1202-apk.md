@@ -15,7 +15,7 @@ Turn your Android device into a digital photo viewer showing a slideshow of loca
 \* View photos from your Dropbox, Facebook or Flickr account.  
 \* Select the way they should be presented on the screen.  
 \* Several transitions.  
-\* The orientation of the photos is fixed if the EXIF ââtag is present.  
+\* The orientation of the photos is fixed if the EXIF tag is present.  
 \* Open an image from another application and use this folder as a photo source.  
 \* Click on a displayed photo to display it in full screen and share, modify or delete the photo.  
 \* Keep a list of recently opened files.  
@@ -23,7 +23,7 @@ Turn your Android device into a digital photo viewer showing a slideshow of loca
 **Supported Android**  
 {Varies with device}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 Download Digital Photo Frame Premium 12.0.2 APK For Android
 ===========================================================

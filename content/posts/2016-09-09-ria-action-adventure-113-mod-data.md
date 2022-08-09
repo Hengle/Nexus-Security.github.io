@@ -12,7 +12,7 @@ Ria Action Adventure 1.1.3 MOD + DATA (Unlimited Money + Souls) APK For Android
 
 Save the world from the queen of dark souls
 
-Ria is an open world of action-adventure based on mythology invaded by monstrous and dark creatures. God sent his son (Ria) to save humanity and cleanse it for the first human civilization on earth. Youâll set off on your own to face hordes of deadly enemies and epic rulers, and try to keep the dark souls from summoning the Queen of Dark Soul. If it is awakened, the world will suffer from endless darkness. It will take everything you have to keep the dark soul queen from waking up.
+Ria is an open world of action-adventure based on mythology invaded by monstrous and dark creatures. God sent his son (Ria) to save humanity and cleanse it for the first human civilization on earth. Youll set off on your own to face hordes of deadly enemies and epic rulers, and try to keep the dark souls from summoning the Queen of Dark Soul. If it is awakened, the world will suffer from endless darkness. It will take everything you have to keep the dark soul queen from waking up.
 
 OPEN WORLD  
 Explore dynamically generated enemy creatures that change every time you play them, creating enemy encounters, quest opportunities. Each of the game's unique worlds is filled with monstrous creatures and environments that will provide challenges with each game. Adapt and explore ... or die trying.
@@ -27,7 +27,7 @@ Saving the worlds to find the end of the root is dangerous and survival is far f
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: Unlimited Money + Souls**
 

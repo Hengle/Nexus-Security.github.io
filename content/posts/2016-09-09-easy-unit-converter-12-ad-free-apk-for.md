@@ -11,7 +11,7 @@ draft: false
 Easy Unit Converter 1.2 Ad Free APK For Android
 
 Simple and easy to use currency and easy unit conversion app to manage any conversion you need.  
-Easy Unit Converter covers: Currency, Unit search, Acceleration, Angle, Area, Data storage, Data transfer speed, Density, Energy, Force, Frequency, length / Distance, Mass / Weight, Power, Prefix, Pressure, Speed ââ/ Speed, Temperature, Time, Torque, Volume and many more.  
+Easy Unit Converter covers: Currency, Unit search, Acceleration, Angle, Area, Data storage, Data transfer speed, Density, Energy, Force, Frequency, length / Distance, Mass / Weight, Power, Prefix, Pressure, Speed / Speed, Temperature, Time, Torque, Volume and many more.  
 **Characteristics**:  
 \* Energy: power, temperature conversions (Celsius, Fahrenheit), energy consumed.  
 \* Electricity: electric charge, electric current, electric capacity, electric potential, electric resistance.  
@@ -21,7 +21,7 @@ Easy Unit Converter covers: Currency, Unit search, Acceleration, Angle, Area, Da
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 Download Easy Unit Converter 1.2 Ad Free APK For Android
 ========================================================

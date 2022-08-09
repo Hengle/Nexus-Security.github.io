@@ -1,14 +1,14 @@
 ---
-title: 'Candy Crush Jelly Saga 2.34.41 MOD (Unlimited Lives + More)Â  APK For Android'
+title: 'Candy Crush Jelly Saga 2.34.41 MOD (Unlimited Lives + More)  APK For Android'
 date: 2020-01-14T04:14:00+01:00
 draft: false
 ---
 
-![Candy Crush Jelly Saga 2.34.41 MOD (Unlimited Lives + More)Â  APK For Android](https://i0.wp.com/apkhome.net/wp-content/uploads/2020/01/Candy-Crush-Jelly-Saga-2.34.41-MOD-Unlimited-Lives-More.png "Candy Crush Jelly Saga 2.34.41 MOD (Unlimited Lives + More)Â  APK For Android")
+![Candy Crush Jelly Saga 2.34.41 MOD (Unlimited Lives + More)  APK For Android](https://i0.wp.com/apkhome.net/wp-content/uploads/2020/01/Candy-Crush-Jelly-Saga-2.34.41-MOD-Unlimited-Lives-More.png "Candy Crush Jelly Saga 2.34.41 MOD (Unlimited Lives + More)  APK For Android")
 
   
 
-Candy Crush Jelly Saga 2.34.41 MOD (Unlimited Lives + More)Â  APK For Android
+Candy Crush Jelly Saga 2.34.41 MOD (Unlimited Lives + More)  APK For Android
 
 The vibrant Jelly Queen has landed and challenged you in a game of Candy Crush Jelly Saga! You will have to take out your most delicious tactics to hope to defeat it!
 
@@ -23,11 +23,11 @@ Candy Crush Jelly Saga is a completely free game. However, the in-game currency,
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: Unlimited Lives + More**
 
-Download Candy Crush Jelly Saga 2.34.41 MOD (Unlimited Lives + More)Â  APK For Android
+Download Candy Crush Jelly Saga 2.34.41 MOD (Unlimited Lives + More)  APK For Android
 ======================================================================================
 
 Additional Information

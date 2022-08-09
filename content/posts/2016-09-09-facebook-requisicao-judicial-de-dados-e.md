@@ -29,7 +29,7 @@ Ao se cadastrar no Facebook o usuário informa dados como nome, e-mail e data de
   
 Além da verificação em duas etapas, a plataforma grava o IP (_Internet Protocol_) da conexão do usuário que fez o cadastro e usa efetivamente a rede social.
 
-Por meio do Facebook os usuários criam perfis que contêm fotos, dados pessoais, lista de interesses; adiciona amigos e participa de grupos temáticos. A rede social pode funcionar também como correio eletrônico e comunicador instantâneo.  
+Por meio do Facebook os usuários criam perfis que contêm fotos, dados pessoais, lista de interesses; adiciona amigos e participa de grupos temáticos. A rede social pode funcionar também como correio eletrônico e comunicador instantneo.  
 **II - O Facebook como um Provedor de Acesso a Aplicações de Internet (PAI), segundo dicção do marco civil da internet - lei 12.965/14  
 **O Marco Civil da Internet (lei 12.965/14) não trouxe nenhuma definição específica sobre os provedores.  
 Entretanto, o inciso VI do artigo 5° do Marco Civil da Internet (MCI), nos dá uma pista sobre o conceito de Provedores de Aplicação da Internet (PAI). Diz o mencionado inciso que se considera aplicações de internet: o conjunto de funcionalidades que podem ser acessadas por meio de um terminal conectado à internet.  
@@ -50,11 +50,11 @@ _Por tudo que foi dito, o Facebook é um Provedor de Aplicação de Internet (PA
 **III - Requisição judicial de registros do Facebook - Possibilidade de todos os juízos  
 **Diz o inciso II do artigo 7° do Marco Civil da Internet que ao usuário é assegurado o direito de inviolabilidade e sigilo do fluxo de suas comunicações pela internet, salvo por ordem judicial, na forma da lei.
 
-Por isso, o acesso online e em tempo real por parte das autoridades das mensagens e comunicações instantâneas dos usuários do Facebook só pode acontecer mediante ordem judicial de juízo criminal em instrução processual penal conforme os ditames da lei 9.296/14 (lei das interceptações das comunicações telefônicas).
+Por isso, o acesso online e em tempo real por parte das autoridades das mensagens e comunicações instantneas dos usuários do Facebook só pode acontecer mediante ordem judicial de juízo criminal em instrução processual penal conforme os ditames da lei 9.296/14 (lei das interceptações das comunicações telefônicas).
 
 Já o inciso III do mesmo artigo 7° diz que ao usuário é assegurado o direito de inviolabilidade e sigilo de suas comunicações privadas armazenadas, salvo por ordem judicial.
 
-Deste modo, entendo que todos os juízos, e não apenas o juízo criminal, tem competência para requisitar o teor das comunicações realizadas por meio do Facebook, desde que já cessadas e armazenadas. Poderá qualquer juízo requisitar o teor das comunicações armazenadas geradas pelo comunicador instantâneo, mensagens, posts escritos, lista me amigos, grupos de interesse, ou seja, todos os dados gerados pelo usuário.
+Deste modo, entendo que todos os juízos, e não apenas o juízo criminal, tem competência para requisitar o teor das comunicações realizadas por meio do Facebook, desde que já cessadas e armazenadas. Poderá qualquer juízo requisitar o teor das comunicações armazenadas geradas pelo comunicador instantneo, mensagens, posts escritos, lista me amigos, grupos de interesse, ou seja, todos os dados gerados pelo usuário.
 
 A título de exemplo, o juízo cível pode requisitar o conteúdo de comunicações cessadas e armazenada no Facebook para instruir qualquer demanda cível, mesmo de Juizado Especial.
 
@@ -82,7 +82,7 @@ Este requerimento de preservação poderá ser feito pela plataforma disponibili
 
 O nome de domínio está inserido dentro de uma estrutura chamada de _Uniform Resource Locator_ (URL). Ela é formada por uma sequência de caracteres que nomeia recursos como documentos e imagens na internet.
 
-A indicação do URL em demandas envolvendo o Direito Digital é de suma importância e no caso do Facebook, imprescindível.
+A indicação do URL em demandas envolvendo o Direito Digital é de suma importncia e no caso do Facebook, imprescindível.
 
 Em casos em que há a necessidade de se requisitar informações, ou mesmo em situações de retiradas de conteúdos da rede social, a indicação da URL é provavelmente mais importante que o e-mail cadastrado pelo usuário infrator ou a sua identidade virtual (ID).
 
@@ -102,7 +102,7 @@ No pedido propriamente dito o requerente poderá pedir as seguintes informaçõe
 > \- **Listagem dos amigos** adicionados;  
 > \- **Listagem dos grupos** que o usuário participa. Este dado é particularmente importante nas investigações de pedofilia e racismo;  
 > \- **Mensagens** trocadas entre usuários (correio eletrônico), sendo, também, necessário indicar o período de tempo;  
-> \-** Mensagens instantâneas** trocadas entre usuários, com indicação do período (datas);  
+> \-** Mensagens instantneas** trocadas entre usuários, com indicação do período (datas);  
 > \- **Páginas** administradas pelo usuário.
 > 
 > Esta listagem não é exaustiva. A depender do objeto da lide outras requisições podem ser feitas como as curtidas realizadas pelo usuário ou mesmo os links compartilhados por ele.
@@ -128,7 +128,7 @@ Por fim, os grupos do Facebook também possuem a identificação numérica (15 d
 
 As regras até agora explicitadas, principalmente quanto à necessidade de ordem judicial, sofrem exceções.
 
-O artigo 21, _caput_, do Marco Civil da Internet diz que o Provedor de Aplicação de Internet (PAI) que disponibilize conteúdo gerado por terceiro (situação em que o Facebook se enquadra) será responsabilizado subsidiariamente pela violação da intimidade decorrente de divulgação, sem autorização de seus participantes, de imagens, de vídeos ou de outros materiais contendo cenas de nudez ou de atos sexuais de caráter privado quando, após o recebimento de notificação pelo participante ou seu representante legal, deixar de promover, de forma diligente, no âmbito e nos limites técnicos do seu serviço, a indisponibilização desse conteúdo.
+O artigo 21, _caput_, do Marco Civil da Internet diz que o Provedor de Aplicação de Internet (PAI) que disponibilize conteúdo gerado por terceiro (situação em que o Facebook se enquadra) será responsabilizado subsidiariamente pela violação da intimidade decorrente de divulgação, sem autorização de seus participantes, de imagens, de vídeos ou de outros materiais contendo cenas de nudez ou de atos sexuais de caráter privado quando, após o recebimento de notificação pelo participante ou seu representante legal, deixar de promover, de forma diligente, no mbito e nos limites técnicos do seu serviço, a indisponibilização desse conteúdo.
 
 No caso de postagem no Facebook de imagens e vídeos de cenas de nudez e de atos sexuais privados, a vítima poderá requerer a retirada do material sem a necessidade de recorrer ao Poder Judiciário.
 

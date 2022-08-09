@@ -10,12 +10,12 @@ draft: false
 
 Medical Lab Tests Pro 1.0 APK For Android
 
-Medical Lab Tests is the ideal pocket tool for medical laboratory testing and allows you to browse an extensive library of popular laboratory tests to learn more about clinical laboratory values. So, no matter if you are a health professional, a nurse, a medical student or just finished your studies at the University of Medicine, this lab reference app is an indispensable app for you. You can easily read the precise interpretations of routine laboratory tests and it also helps you remember laboratory values ââas well as differences in values ââand learn more about reference values.
+Medical Lab Tests is the ideal pocket tool for medical laboratory testing and allows you to browse an extensive library of popular laboratory tests to learn more about clinical laboratory values. So, no matter if you are a health professional, a nurse, a medical student or just finished your studies at the University of Medicine, this lab reference app is an indispensable app for you. You can easily read the precise interpretations of routine laboratory tests and it also helps you remember laboratory values as well as differences in values and learn more about reference values.
 
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 Download Medical Lab Tests Pro 1.0 APK For Android
 ==================================================

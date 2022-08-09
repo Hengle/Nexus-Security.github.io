@@ -15,7 +15,7 @@ You can choose from several FPS modes: offline campaign with Pixelman, Battle Ro
 Fast multiplayer and high FPS guaranteed.
 
 **Features:**  
-\*â ï¸ Battle Royale: 2 cards, 100 players, the last player standing wins;  
+\* ï¸ Battle Royale: 2 cards, 100 players, the last player standing wins;  
 Orts Clan Forts: attack the fort of your enemies and defend yours, use clan chests to get different items to strengthen the fort;  
 \* Offline modes: zombie apocalypse without Wi-Fi and Internet;  
 \* 11+ modes: Deathmatch, Arena, Cooperative Survival, Campaign and many more;  
@@ -26,7 +26,7 @@ Orts Clan Forts: attack the fort of your enemies and defend yours, use clan ches
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: Unlimited Money  
 **

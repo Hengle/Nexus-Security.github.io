@@ -27,7 +27,7 @@ draft: false
 
 *   **Preço:** de R$ 128.490 por 70mil
 *   **Motor: **gas., diant., transv., 4 cil., 16V, 1.998 cm3, 160 cv a 6.000 rpm, 25,5 mkgf a 4.200 rpm
-*   **Câmbio: **automatico, 6 marchas, tração integral
+*   **Cmbio: **automatico, 6 marchas, tração integral
 *   **Suspensão:** McPherson(diant.) / multilink (tras.)
 *   **Freios:** discos ventilados (diant.) / discos sólidos (tras.)
 *   **Direção:** elétrica

@@ -1,14 +1,14 @@
 ---
-title: 'Police Stickman Rope Hero Gangstar Crime Mafia 1.1 MOD (Unlimited Coin + Gem)Â  APK For Android'
+title: 'Police Stickman Rope Hero Gangstar Crime Mafia 1.1 MOD (Unlimited Coin + Gem)  APK For Android'
 date: 2020-01-26T01:00:00+01:00
 draft: false
 ---
 
-![Police Stickman Rope Hero Gangstar Crime Mafia 1.1 MOD (Unlimited Coin + Gem)Â  APK For Android](https://i1.wp.com/apkhome.net/wp-content/uploads/2020/01/Police-Stickman-Rope-Hero-Gangstar-Crime-Mafia-1.1-MOD-Unlimited-Coin-Gem.png "Police Stickman Rope Hero Gangstar Crime Mafia 1.1 MOD (Unlimited Coin + Gem)Â  APK For Android")
+![Police Stickman Rope Hero Gangstar Crime Mafia 1.1 MOD (Unlimited Coin + Gem)  APK For Android](https://i1.wp.com/apkhome.net/wp-content/uploads/2020/01/Police-Stickman-Rope-Hero-Gangstar-Crime-Mafia-1.1-MOD-Unlimited-Coin-Gem.png "Police Stickman Rope Hero Gangstar Crime Mafia 1.1 MOD (Unlimited Coin + Gem)  APK For Android")
 
   
 
-Police Stickman Rope Hero Gangstar Crime Mafia 1.1 MOD (Unlimited Coin + Gem)Â  APK For Android
+Police Stickman Rope Hero Gangstar Crime Mafia 1.1 MOD (Unlimited Coin + Gem)  APK For Android
 
 US Police Stickman Rope Hero Vegas Gangstar Crime for yourself and become the most notorious criminal gang!
 
@@ -20,11 +20,11 @@ One of the biggest additions is the police, so be careful who you shoot, where y
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: Unlimited Coin + Gem**
 
-Download Police Stickman Rope Hero Gangstar Crime Mafia 1.1 MOD (Unlimited Coin + Gem)Â  APK For Android
+Download Police Stickman Rope Hero Gangstar Crime Mafia 1.1 MOD (Unlimited Coin + Gem)  APK For Android
 ========================================================================================================
 
 Additional Information

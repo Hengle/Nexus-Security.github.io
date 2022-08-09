@@ -10,7 +10,7 @@ draft: false
 
 QuickPic Photo Gallery with Google Drive Support 7.9 APK For Android
 
-Fast, light and modern! Loved by over 10 million users, with an overall rating of 4.6, QuickPic is ideally the best alternative gallery app designed for managing your beloved photos. Itâs significantly smaller than other gallery apps, but packs more power than any of them.  
+Fast, light and modern! Loved by over 10 million users, with an overall rating of 4.6, QuickPic is ideally the best alternative gallery app designed for managing your beloved photos. Its significantly smaller than other gallery apps, but packs more power than any of them.  
 **Characteristics:**  
 \* Material Design: Colorful themes and modern design, transparent layered and immersive user interface.  
 \* Fast: Quick app launching, view thousands of your photos instantly. QuickPic's smooth user experience is optimized for large screens and multiple finger gestures, and contains no ads or extra permissions.  
@@ -20,7 +20,7 @@ Fast, light and modern! Loved by over 10 million users, with an overall rating o
 **Supported Android**  
 {5.0 and UP}  
 **Supported Android Version**:-  
-Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 Download QuickPic Photo Gallery with Google Drive Support 7.9 APK For Android
 =============================================================================

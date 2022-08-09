@@ -1,14 +1,14 @@
 ---
-title: 'Faily Rider 9.2 MOD (Unlimited Money + Unlocked)Â  APK For Android'
+title: 'Faily Rider 9.2 MOD (Unlimited Money + Unlocked)  APK For Android'
 date: 2020-01-04T05:56:00+01:00
 draft: false
 ---
 
-![Faily Rider 9.2 MOD (Unlimited Money + Unlocked)Â  APK For Android](https://i0.wp.com/apkhome.net/wp-content/uploads/2020/01/Faily-Rider-9.2-MOD-Unlimited-Money-Unlocked.png "Faily Rider 9.2 MOD (Unlimited Money + Unlocked)Â  APK For Android")
+![Faily Rider 9.2 MOD (Unlimited Money + Unlocked)  APK For Android](https://i0.wp.com/apkhome.net/wp-content/uploads/2020/01/Faily-Rider-9.2-MOD-Unlimited-Money-Unlocked.png "Faily Rider 9.2 MOD (Unlimited Money + Unlocked)  APK For Android")
 
   
 
-Faily Rider 9.2 MOD (Unlimited Money + Unlocked)Â  APK For Android
+Faily Rider 9.2 MOD (Unlimited Money + Unlocked)  APK For Android
 
 This poor Phil Faily was definitely not very lucky with cars ... and now he finds himself at the controls of a motorcycle!
 
@@ -25,11 +25,11 @@ In this motorbike driving game, you have to maneuver endlessly over dangerous mo
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: Unlimited Money + Unlocked**
 
-Download Faily Rider 9.2 MOD (Unlimited Money + Unlocked)Â  APK For Android
+Download Faily Rider 9.2 MOD (Unlimited Money + Unlocked)  APK For Android
 ===========================================================================
 
 Additional Information

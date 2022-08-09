@@ -14,7 +14,7 @@ Join Optimus Prime, Megatron, Bumblebee, Waspinator, Rhinox, Grimlock, Soundwave
 
 **Features:**  
 \* Collect iconic robots from across the Transformers universe  
-\* Fight other players with devastating special attacks, ranged shots, destructible terrain and huge 360 Â° arenas  
+\* Fight other players with devastating special attacks, ranged shots, destructible terrain and huge 360 ° arenas  
 \* Team up with your friends, forge alliances and fight in world events  
 \* Set a glove of robots and defenses to protect your base, take revenge on those who attack and attack enemy bases  
 \* Deploy teams outside to score epic loot
@@ -22,7 +22,7 @@ Join Optimus Prime, Megatron, Bumblebee, Waspinator, Rhinox, Grimlock, Soundwave
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: Unlocked  
 **

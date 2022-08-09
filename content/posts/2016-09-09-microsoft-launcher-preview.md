@@ -1,14 +1,14 @@
 ---
-title: 'Microsoft Launcher Preview 6.0.200101.73373Â APK For Android'
+title: 'Microsoft Launcher Preview 6.0.200101.73373 APK For Android'
 date: 2020-01-14T08:56:00+01:00
 draft: false
 ---
 
-![Microsoft Launcher Preview 6.0.200101.73373Â APK For Android](https://i1.wp.com/apkhome.net/wp-content/uploads/2020/01/Microsoft-Launcher-Preview-6.0.200101.73373.png "Microsoft Launcher Preview 6.0.200101.73373Â APK For Android")
+![Microsoft Launcher Preview 6.0.200101.73373 APK For Android](https://i1.wp.com/apkhome.net/wp-content/uploads/2020/01/Microsoft-Launcher-Preview-6.0.200101.73373.png "Microsoft Launcher Preview 6.0.200101.73373 APK For Android")
 
   
 
-Microsoft Launcher Preview 6.0.200101.73373Â APK For Android
+Microsoft Launcher Preview 6.0.200101.73373 APK For Android
 
 Be among the first to help us test brand new features at an early stage as we continue to evolve the Microsoft launcher. The goal of this program is to get your valuable feedback to improve quality, performance and shape the overall user experience.  
 **Characteristics:**  
@@ -18,9 +18,9 @@ Be among the first to help us test brand new features at an early stage as we co
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
-Download Microsoft Launcher Preview 6.0.200101.73373Â APK For Android
+Download Microsoft Launcher Preview 6.0.200101.73373 APK For Android
 =====================================================================
 
 Additional Information

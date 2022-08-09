@@ -1,14 +1,14 @@
 ---
-title: 'Talking Tom Gold Run 3.9.0.425 MOD (Unlimited coins + candles)Â  APK For Android'
+title: 'Talking Tom Gold Run 3.9.0.425 MOD (Unlimited coins + candles)  APK For Android'
 date: 2019-11-29T19:14:00+01:00
 draft: false
 ---
 
-![Talking Tom Gold Run 3.9.0.425 MOD (Unlimited coins + candles)Â  APK For Android](https://i0.wp.com/apkhome.net/wp-content/uploads/2019/11/Talking-Tom-Gold-Run.png "Talking Tom Gold Run 3.9.0.425 MOD (Unlimited coins + candles)Â  APK For Android")
+![Talking Tom Gold Run 3.9.0.425 MOD (Unlimited coins + candles)  APK For Android](https://i0.wp.com/apkhome.net/wp-content/uploads/2019/11/Talking-Tom-Gold-Run.png "Talking Tom Gold Run 3.9.0.425 MOD (Unlimited coins + candles)  APK For Android")
 
   
 
-Talking Tom Gold Run 3.9.0.425 MOD (Unlimited coins + candles)Â  APK For Android
+Talking Tom Gold Run 3.9.0.425 MOD (Unlimited coins + candles)  APK For Android
 
 Players can run to the burglar's karts through the endless and fun worlds of Talking Tom: Gold Race! This cool racing game is about running, jumping, racing and getting a big dose of adrenaline!
 
@@ -23,11 +23,11 @@ SPECIAL FEATURES: Players can run even faster and get out of crazy figures with 
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: Unlimited coins + candles**
 
-Download Talking Tom Gold Run 3.9.0.425 MOD (Unlimited coins + candles)Â  APK For Android
+Download Talking Tom Gold Run 3.9.0.425 MOD (Unlimited coins + candles)  APK For Android
 =========================================================================================
 
 Additional Information

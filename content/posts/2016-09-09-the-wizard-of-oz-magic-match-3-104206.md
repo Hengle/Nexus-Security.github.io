@@ -10,9 +10,9 @@ draft: false
 
 The Wizard of Oz Magic Match 3 1.0.4206 MOD (Infinite Lives Always Active + Infinite Boosters) APK For Android
 
-Match 3 elements (Match 3) on YELLOW BRICK ROUTE â¢ in an adventure game made of magical puzzles that bring together DOROTHÃE â¢, ÃPOUVANTAIL â¢, the BÃCHERON â¢ and LION PEUREUX â¢!
+Match 3 elements (Match 3) on YELLOW BRICK ROUTE ¢ in an adventure game made of magical puzzles that bring together DOROTHÃE ¢, ÃPOUVANTAIL ¢, the BÃCHERON ¢ and LION PEUREUX ¢!
 
-The magic awaits you in the CITY OF EMERALD â¢! Match 3 or more items to solve puzzles and unlock magical passages of the movie! The anecdotes of the film, fun facts and unpublished photos are to discover with NEW opportunities! Check out the Rare Moments to find out more about your favorite movie!
+The magic awaits you in the CITY OF EMERALD ¢! Match 3 or more items to solve puzzles and unlock magical passages of the movie! The anecdotes of the film, fun facts and unpublished photos are to discover with NEW opportunities! Check out the Rare Moments to find out more about your favorite movie!
 
 **Features:**
 
@@ -30,7 +30,7 @@ MAKE 3 MATCHES (MATCH 3) MATCH IN THE COUNTRY OF OZ!
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: Infinite Lives Always Active + Infinite Boosters**
 

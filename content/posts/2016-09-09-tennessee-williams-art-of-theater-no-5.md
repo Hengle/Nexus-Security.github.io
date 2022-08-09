@@ -444,7 +444,7 @@ YEVTUSHENKO
 
 What’s happened to him? Is he still in favor with the Soviets?
 
-When he was last in the States he asked me to have lunch with him. He ordered bottles of Château Lafite Rothschild. And the bill was so tremendous it occupied three pages! I was stuck with it, of course. I told him he was a fucking capitalist pig!
+When he was last in the States he asked me to have lunch with him. He ordered bottles of Chteau Lafite Rothschild. And the bill was so tremendous it occupied three pages! I was stuck with it, of course. I told him he was a fucking capitalist pig!
 
 He was accompanied by this very fat gourmand of a translator who didn’t translate anything. Yevtushenko spoke perfect English and he understood English perfectly. And the alleged translator didn’t understand a damn thing except how to eat and drink like a rich capitalist!
 

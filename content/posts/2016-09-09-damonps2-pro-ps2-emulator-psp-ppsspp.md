@@ -14,7 +14,7 @@ The fastest PS2 emulator in the world. The only PS2 emulator on Android. Just li
 **Supported Android**  
 {5.0 and UP}  
 **Supported Android Version**:-  
-Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 Download DamonPS2 Pro PS2 Emulator PSP PPSSPP PS2 Emu 3.1.1 Paid APK For Android
 ================================================================================
@@ -22,7 +22,7 @@ Download DamonPS2 Pro PS2 Emulator PSP PPSSPP PS2 Emu 3.1.1 Paid APK For Android
 Additional Information
 ----------------------
 
-**Developer :** Ã°ÂÂ"Â¥Ã°ÂÂ"Â¥Ã°ÂÂ"Â¥ DamonPS2 Emulator Studio
+**Developer :** Ã°"¥Ã°"¥Ã°"¥ DamonPS2 Emulator Studio
 
 **Version :** 3.1.1
 

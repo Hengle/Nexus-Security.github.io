@@ -1,14 +1,14 @@
 ---
-title: 'GT Speed Club Drag Racing CSR Race Car Game 1.5.26.161 MOD (money + gold)Â  APK For Android'
+title: 'GT Speed Club Drag Racing CSR Race Car Game 1.5.26.161 MOD (money + gold)  APK For Android'
 date: 2019-12-29T18:28:00+01:00
 draft: false
 ---
 
-![GT Speed Club Drag Racing CSR Race Car Game 1.5.26.161 MOD (money + gold)Â  APK For Android](https://i1.wp.com/apkhome.net/wp-content/uploads/2019/12/GT-Speed-Club-Drag-Racing-CSR-Race-Car-Game-1.5.26.161-MOD-money-gold.png "GT Speed Club Drag Racing CSR Race Car Game 1.5.26.161 MOD (money + gold)Â  APK For Android")
+![GT Speed Club Drag Racing CSR Race Car Game 1.5.26.161 MOD (money + gold)  APK For Android](https://i1.wp.com/apkhome.net/wp-content/uploads/2019/12/GT-Speed-Club-Drag-Racing-CSR-Race-Car-Game-1.5.26.161-MOD-money-gold.png "GT Speed Club Drag Racing CSR Race Car Game 1.5.26.161 MOD (money + gold)  APK For Android")
 
   
 
-GT Speed Club Drag Racing CSR Race Car Game 1.5.26.161 MOD (money + gold)Â  APK For Android
+GT Speed Club Drag Racing CSR Race Car Game 1.5.26.161 MOD (money + gold)  APK For Android
 
 We believe in the accelerator, not the brakes. A different experience from a free racing game in the Drag racing style. This time with "GT: Speed Club".
 
@@ -26,11 +26,11 @@ GT Club includes tons of racing cars with amazing quality that you have never ex
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: money + gold**
 
-Download GT Speed Club Drag Racing CSR Race Car Game 1.5.26.161 MOD (money + gold)Â  APK For Android
+Download GT Speed Club Drag Racing CSR Race Car Game 1.5.26.161 MOD (money + gold)  APK For Android
 ====================================================================================================
 
 Additional Information

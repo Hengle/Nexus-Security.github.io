@@ -22,7 +22,7 @@ Each level will test not only your cycling skills, but also your strategic think
 The craziest 3D graphics you've ever seen combine with perfectly designed levels to form an insane driving experience.
 
 \* UPGRADE FOR SUCCESS  
-Improve your cycling skills; improve your âon trackâ performance and the appearance of your bike with the most hardcore equipment available.
+Improve your cycling skills; improve your on track performance and the appearance of your bike with the most hardcore equipment available.
 
 SWAG MODEM  
 Enhance your pilot with over 200 items of awesome personalization equipment and match your style to your abilities.
@@ -30,7 +30,7 @@ Enhance your pilot with over 200 items of awesome personalization equipment and 
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: Unlimited Money**
 

@@ -10,12 +10,12 @@ draft: false
 
 rif is fun golden platinum for Reddit 4.14.0 Paid APK For Android
 
-"rif is fun" â"aka "RIF" and formerly "reddit is fun" - gives you a fast and intuitive interface for reddit.com.  
+"rif is fun" "aka "RIF" and formerly "reddit is fun" - gives you a fast and intuitive interface for reddit.com.  
 "rif is fun golden platinum" is ad-free.  
 **Supported Android**  
 {Varies with device}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 Download rif is fun golden platinum for Reddit 4.14.0 Paid APK For Android
 ==========================================================================

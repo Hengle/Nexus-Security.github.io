@@ -10,7 +10,7 @@ draft: false
 
 RollerCoaster Tycoon Touch Build your Theme Park 3.4.8 MOD (Unlimited Money) APK For Android
 
-Create, customize and run your own amusement park in RollerCoaster TycoonÂ® Touch â¢.
+Create, customize and run your own amusement park in RollerCoaster Tycoon® Touch ¢.
 
 "By far the best experience of Roller Coaster Tycoon since the release of RollerCoaster Tycoon 3 in 2004." GAMEZEBO
 
@@ -27,7 +27,7 @@ Play the number 1 amusement park building game! It has never been so entertainin
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: Unlimited Money**
 

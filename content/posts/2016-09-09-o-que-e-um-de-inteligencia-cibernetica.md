@@ -28,7 +28,7 @@ Para garantir que estamos na mesma página, no nível mais alto, a inteligência
 
 **Conjunto de habilidades de analista de inteligência cibernética**
 
-Usando essa definição, a função da inteligência contra ameaças reside melhor entre as operações de TI e de negócios. Para uma inteligência verdadeiramente valiosa, o analista precisa de uma forte mistura de conhecimento técnico e capacidade analítica. O analista da intel deve ser proficiente em como as redes operam e, posteriormente, como elas são e podem ser atacadas. Eles também precisam saber como coletar informações abrangentes sobre ameaças técnicas, destilar o que geralmente é um volume significativo de dados e traduzir efetivamente as circunstâncias de risco aos tomadores de decisão da organização, de uma maneira com a qual possam se relacionar e se importar.
+Usando essa definição, a função da inteligência contra ameaças reside melhor entre as operações de TI e de negócios. Para uma inteligência verdadeiramente valiosa, o analista precisa de uma forte mistura de conhecimento técnico e capacidade analítica. O analista da intel deve ser proficiente em como as redes operam e, posteriormente, como elas são e podem ser atacadas. Eles também precisam saber como coletar informações abrangentes sobre ameaças técnicas, destilar o que geralmente é um volume significativo de dados e traduzir efetivamente as circunstncias de risco aos tomadores de decisão da organização, de uma maneira com a qual possam se relacionar e se importar.
 
 **Analistas cibernéticos ou analistas cibernéticos**
 

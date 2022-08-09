@@ -14,7 +14,7 @@ When was the last time you could start your life in the coolest cities in the wo
 
 When was the last time you really followed your dreams until you reached them? When was the last time you met the great love and did everything to conquer it?
 
-All this is possible now! With Fictions: Choose your emotionsÂ  you can live a great adventure and make the decisions that will take you to the top!
+All this is possible now! With Fictions: Choose your emotions  you can live a great adventure and make the decisions that will take you to the top!
 
 Fictions: Choose your emotions is an interactive story platform that gives you the opportunity to write your own story! It doesn't matter if you are a man or a woman, a boy or a girl, gay or straight, everyone can make choices by relying on their personal judgment to create a story and a life course that will be like them.
 
@@ -23,7 +23,7 @@ Do not miss your chance! DOWNLOAD NOW this new interactive story game Fictions: 
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE; Stars**
 

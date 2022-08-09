@@ -1,14 +1,14 @@
 ---
-title: 'Two Dots 5.16.2 MOD (Free Shopping)Â  APK For Android'
+title: 'Two Dots 5.16.2 MOD (Free Shopping)  APK For Android'
 date: 2020-01-20T04:28:00+01:00
 draft: false
 ---
 
-![Two Dots 5.16.2 MOD (Free Shopping)Â  APK For Android](https://i1.wp.com/apkhome.net/wp-content/uploads/2020/01/Two-Dots-5.16.2-MOD-Free-Shopping.png "Two Dots 5.16.2 MOD (Free Shopping)Â  APK For Android")
+![Two Dots 5.16.2 MOD (Free Shopping)  APK For Android](https://i1.wp.com/apkhome.net/wp-content/uploads/2020/01/Two-Dots-5.16.2-MOD-Free-Shopping.png "Two Dots 5.16.2 MOD (Free Shopping)  APK For Android")
 
   
 
-Two Dots 5.16.2 MOD (Free Shopping)Â  APK For Android
+Two Dots 5.16.2 MOD (Free Shopping)  APK For Android
 
 Join two brave dots as they roam the arctic tundra, cross unforgiving jungles and dive into the depths of the ocean in the # 1 hit game in over 100 countries.
 
@@ -24,11 +24,11 @@ Join two brave dots as they roam the arctic tundra, cross unforgiving jungles an
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: Free Shopping**
 
-Download Two Dots 5.16.2 MOD (Free Shopping)Â  APK For Android
+Download Two Dots 5.16.2 MOD (Free Shopping)  APK For Android
 ==============================================================
 
 Additional Information

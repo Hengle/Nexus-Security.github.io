@@ -10,11 +10,11 @@ draft: false
 
 Google Earth 9.3.7.8 APK For Android
 
-Explore the whole world from above with 3D imagery and 3D terrain of the entire globe and 3D buildings in hundreds of cities around the world. Zoom into your home or anywhere else, then dive in for a 360 Â° perspective with Street View. Discover the world from a new perspective with Voyager, a collection of guided tours from BBC Earth, NASA, National Geographic and more. And now, view the immersive maps and stories you've created with Google Earth on the web on your mobile device.  
+Explore the whole world from above with 3D imagery and 3D terrain of the entire globe and 3D buildings in hundreds of cities around the world. Zoom into your home or anywhere else, then dive in for a 360 ° perspective with Street View. Discover the world from a new perspective with Voyager, a collection of guided tours from BBC Earth, NASA, National Geographic and more. And now, view the immersive maps and stories you've created with Google Earth on the web on your mobile device.  
 **Supported Android**  
 {4.1 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 Download Google Earth 9.3.7.8 APK For Android
 =============================================

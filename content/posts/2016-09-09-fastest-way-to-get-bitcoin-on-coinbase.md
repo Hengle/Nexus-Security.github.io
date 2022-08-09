@@ -8,7 +8,7 @@ draft: false
 
 ![Fastest way to get bitcoin on coinbase](https://blog.bitpay.com/content/images/2017/01/Coinbase-BitPay-Screenshots.png "Fastest way to get bitcoin on coinbase") 
 
-![Change Bitcoin Address Coinbase éæç¡æ ãã­ã³ã® ã­ã¤ãã³ A4 - ](https://i.ytimg.com/vi/0-WLBsKL1k0/maxresdefault.jpg "Change Bitcoin Address Coinbase éæç¡æ ãã­ã³ã® ã­ã¤ãã³ A4 | Fastest way to get bitcoin on coinbase") Change Bitcoin Addr! ess Coinbase éæç¡æ ãã­ã³ã® ã­ã¤ãã³ A4
+![Change Bitcoin Address Coinbase éæç¡æ ãã­ã³ã® ã­ã¤ãã³ A4 - ](https://i.ytimg.com/vi/0-WLBsKL1k0/maxresdefault.jpg "Change Bitcoin Address Coinbase éæç¡æ ãã­ã³ã® ã­ã¤ãã³ A4 | Fastest way to get bitcoin on coinbase") Change Bitcoin Addr! ess Coinbase éæç¡æ ãã­ã³ã® ã­ã¤ãã³ A4
 
 ![Coinbase Why Does A Buy Take So Long - ](https://support.coinbase.com/customer/portal/attachments/526542 "Coinbase Why Does A Buy Take So Long | Fastest way to get bitcoin on coinbase") Coinbase Why Does A Buy Take So Long
 

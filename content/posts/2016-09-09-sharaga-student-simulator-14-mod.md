@@ -1,14 +1,14 @@
 ---
-title: 'Sharaga student simulator 1.4 MOD (Unlimited Money)Â  APK For Android'
+title: 'Sharaga student simulator 1.4 MOD (Unlimited Money)  APK For Android'
 date: 2020-01-29T19:42:00+01:00
 draft: false
 ---
 
-![Sharaga student simulator 1.4 MOD (Unlimited Money)Â  APK For Android](https://i2.wp.com/apkhome.net/wp-content/uploads/2020/01/Sharaga-student-simulator-1.4-MOD-Unlimited-Money.png "Sharaga student simulator 1.4 MOD (Unlimited Money)Â  APK For Android")
+![Sharaga student simulator 1.4 MOD (Unlimited Money)  APK For Android](https://i2.wp.com/apkhome.net/wp-content/uploads/2020/01/Sharaga-student-simulator-1.4-MOD-Unlimited-Money.png "Sharaga student simulator 1.4 MOD (Unlimited Money)  APK For Android")
 
   
 
-Sharaga student simulator 1.4 MOD (Unlimited Money)Â  APK For Android
+Sharaga student simulator 1.4 MOD (Unlimited Money)  APK For Android
 
 Do you want to stay at the checkout in your restaurant all your life and live from paycheck to paycheck? No? Then sign up for sharagu! Here you will get real knowledge on how to succeed!
 
@@ -19,11 +19,11 @@ Buy expensive real estate, clothes, cars or even a private jet! Zamuti with the 
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: Unlimited Money**
 
-Download Sharaga student simulator 1.4 MOD (Unlimited Money)Â  APK For Android
+Download Sharaga student simulator 1.4 MOD (Unlimited Money)  APK For Android
 ==============================================================================
 
 Additional Information

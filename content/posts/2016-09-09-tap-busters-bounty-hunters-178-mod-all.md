@@ -1,14 +1,14 @@
 ---
-title: 'Tap Busters Bounty Hunters 1.7.8 MOD (All Currency)Â  APK For Android'
+title: 'Tap Busters Bounty Hunters 1.7.8 MOD (All Currency)  APK For Android'
 date: 2019-12-04T18:28:00+01:00
 draft: false
 ---
 
-![Tap Busters Bounty Hunters 1.7.8 MOD (All Currency)Â  APK For Android](https://i1.wp.com/apkhome.net/wp-content/uploads/2019/12/Tap-Busters-Bounty-Hunters.png "Tap Busters Bounty Hunters 1.7.8 MOD (All Currency)Â  APK For Android")
+![Tap Busters Bounty Hunters 1.7.8 MOD (All Currency)  APK For Android](https://i1.wp.com/apkhome.net/wp-content/uploads/2019/12/Tap-Busters-Bounty-Hunters.png "Tap Busters Bounty Hunters 1.7.8 MOD (All Currency)  APK For Android")
 
   
 
-Tap Busters Bounty Hunters 1.7.8 MOD (All Currency)Â  APK For Android
+Tap Busters Bounty Hunters 1.7.8 MOD (All Currency)  APK For Android
 
 Achieve your destiny as a Bounty Hunter! Fight a dangerous army of strange aliens and weird monsters! TAP your way to top rankings against other heroic Tap Busters! Travel through the galactic empire and wage an intergalactic war to defend your planets while raising cash! So in armor, Tap Buster! Prepare your fingers and start your galactic journey today!
 
@@ -20,11 +20,11 @@ Achieve your destiny as a Bounty Hunter! Fight a dangerous army of strange alien
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: All Currency**
 
-Download Tap Busters Bounty Hunters 1.7.8 MOD (All Currency)Â  APK For Android
+Download Tap Busters Bounty Hunters 1.7.8 MOD (All Currency)  APK For Android
 ==============================================================================
 
 Additional Information

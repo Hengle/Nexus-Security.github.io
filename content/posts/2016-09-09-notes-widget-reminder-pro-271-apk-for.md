@@ -10,12 +10,12 @@ draft: false
 
 Notes Widget Reminder Pro 2.71 APK For Android
 
-The most intuitive note widget with built\*in reminder. Are you tired of complicated applications with features you will never use? With this app you can add notes or set a reminder in just 1 click! â­You can create a note by writing directly into the widget, in 1 click, directly from your home screen (without opening any other screen). You can also set "real reminders" on notes \* no short beeps, but a one\*minute bell, and much more.
+The most intuitive note widget with built\*in reminder. Are you tired of complicated applications with features you will never use? With this app you can add notes or set a reminder in just 1 click! ­You can create a note by writing directly into the widget, in 1 click, directly from your home screen (without opening any other screen). You can also set "real reminders" on notes \* no short beeps, but a one\*minute bell, and much more.
 
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 Download Notes Widget Reminder Pro 2.71 APK For Android
 =======================================================

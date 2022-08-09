@@ -15,7 +15,7 @@ The Flux White theme for the Substratum theme engine is designed with perfect pi
 **Supported Android**  
 {7.0 and UP}  
 **Supported Android Version**:-  
-Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 Download Flux White Substratum Theme 4.0.3 Patched APK For Android
 ==================================================================

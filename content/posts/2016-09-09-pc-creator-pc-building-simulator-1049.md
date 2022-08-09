@@ -1,14 +1,14 @@
 ---
-title: 'PC Creator PC Building Simulator 1.0.49 MOD (Unlimited bitcoin)Â  APK For Android'
+title: 'PC Creator PC Building Simulator 1.0.49 MOD (Unlimited bitcoin)  APK For Android'
 date: 2019-12-29T19:42:00+01:00
 draft: false
 ---
 
-![PC Creator PC Building Simulator 1.0.49 MOD (Unlimited bitcoin)Â  APK For Android](https://i1.wp.com/apkhome.net/wp-content/uploads/2019/12/PC-Creator-PC-Building-Simulator-1.0.49-MOD-Unlimited-bitcoin.png "PC Creator PC Building Simulator 1.0.49 MOD (Unlimited bitcoin)Â  APK For Android")
+![PC Creator PC Building Simulator 1.0.49 MOD (Unlimited bitcoin)  APK For Android](https://i1.wp.com/apkhome.net/wp-content/uploads/2019/12/PC-Creator-PC-Building-Simulator-1.0.49-MOD-Unlimited-bitcoin.png "PC Creator PC Building Simulator 1.0.49 MOD (Unlimited bitcoin)  APK For Android")
 
   
 
-PC Creator PC Building Simulator 1.0.49 MOD (Unlimited bitcoin)Â  APK For Android
+PC Creator PC Building Simulator 1.0.49 MOD (Unlimited bitcoin)  APK For Android
 
 Always wanted to know what's on your computer? Or how does it work? Develop your career as a computer builder and cooperate with your friends. In the game, you have a difficult path from beginner to professional
 
@@ -23,11 +23,11 @@ Always wanted to know what's on your computer? Or how does it work? Develop your
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: Unlimited bitcoin**
 
-Download PC Creator PC Building Simulator 1.0.49 MOD (Unlimited bitcoin)Â  APK For Android
+Download PC Creator PC Building Simulator 1.0.49 MOD (Unlimited bitcoin)  APK For Android
 ==========================================================================================
 
 Additional Information

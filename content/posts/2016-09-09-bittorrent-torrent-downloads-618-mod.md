@@ -10,7 +10,7 @@ draft: false
 
 BitTorrent Torrent Downloads 6.1.8 MOD APK For Android
 
-Find, download (torrent) and play torrents on your phone or tablet with the official BitTorrentÂ® app for Android. Get the awesome torrent downloader with no download or upload speed limit. Now downloading torrents to your phone is easy.
+Find, download (torrent) and play torrents on your phone or tablet with the official BitTorrent® app for Android. Get the awesome torrent downloader with no download or upload speed limit. Now downloading torrents to your phone is easy.
 
 The BitTorrent app for Android is an extremely simple way to discover, download and play videos / music, wherever you are.
 
@@ -28,7 +28,7 @@ We listened to your comments and updated this latest version with -
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 Download BitTorrent Torrent Downloads 6.1.8 MOD APK For Android
 ===============================================================

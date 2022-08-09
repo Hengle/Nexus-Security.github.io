@@ -23,7 +23,7 @@ Explore a classic three-lane arena filled with nooks and crannies between towers
 Explore and command a list of over 40 fearless heroes and count, including a variety of tanks, assassins, mages, support, warriors and snipers. Build the perfect team to crush your opponents in battle!
 
 \* The ultimate MOBA experience -  
-First Blood, Double Kill, Triple Killâ¦ all the features you know and love at your fingertips. Discover and dominate all game modes, including 5v5, 3v3, 1v1, and a unique "Hook Wars" mode that will test your skills and make you a true champion!
+First Blood, Double Kill, Triple Kill¦ all the features you know and love at your fingertips. Discover and dominate all game modes, including 5v5, 3v3, 1v1, and a unique "Hook Wars" mode that will test your skills and make you a true champion!
 
 \* Quick matchmaking and 10 minute matches -  
 Team up with players from around the world in an instant. Fight your way through jungles, alleys and towers, draw the first blood and destroy the enemy nucleus. Bring your team to victory in less than 10 minutes!
@@ -31,7 +31,7 @@ Team up with players from around the world in an instant. Fight your way through
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: Unlimited Money**
 

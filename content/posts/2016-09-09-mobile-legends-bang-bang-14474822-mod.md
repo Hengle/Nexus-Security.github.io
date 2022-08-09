@@ -1,14 +1,14 @@
 ---
-title: 'Mobile Legends Bang Bang 1.4.47.4822 MOD (Mod Transparency Map + One Hit Kill + Free 10k Gold + More) Â  APK For Android'
+title: 'Mobile Legends Bang Bang 1.4.47.4822 MOD (Mod Transparency Map + One Hit Kill + Free 10k Gold + More)   APK For Android'
 date: 2020-01-23T18:28:00+01:00
 draft: false
 ---
 
-![Mobile Legends Bang Bang 1.4.47.4822 MOD (Mod Transparency Map + One Hit Kill + Free 10k Gold + More) Â  APK For Android](https://i2.wp.com/apkhome.net/wp-content/uploads/2020/01/Mobile-Legends-Bang-Bang-1.4.47.4822-MOD-Mod-Transparency-Map-One-Hit-Kill-Free-10k-Gold-More.png "Mobile Legends Bang Bang 1.4.47.4822 MOD (Mod Transparency Map + One Hit Kill + Free 10k Gold + More) Â  APK For Android")
+![Mobile Legends Bang Bang 1.4.47.4822 MOD (Mod Transparency Map + One Hit Kill + Free 10k Gold + More)   APK For Android](https://i2.wp.com/apkhome.net/wp-content/uploads/2020/01/Mobile-Legends-Bang-Bang-1.4.47.4822-MOD-Mod-Transparency-Map-One-Hit-Kill-Free-10k-Gold-More.png "Mobile Legends Bang Bang 1.4.47.4822 MOD (Mod Transparency Map + One Hit Kill + Free 10k Gold + More)   APK For Android")
 
   
 
-Mobile Legends Bang Bang 1.4.47.4822 MOD (Mod Transparency Map + One Hit Kill + Free 10k Gold + More) Â  APK For Android
+Mobile Legends Bang Bang 1.4.47.4822 MOD (Mod Transparency Map + One Hit Kill + Free 10k Gold + More)   APK For Android
 
 Join your friends in a new type of MOBA 5v5 against real human opponents, Mobile Legends: Bang Bang! Choose your favorite Hero and create the perfect team with your fellow students! 10 seconds of research, 10 minutes of combat. Fight in the lines, the jungle, run to the towers, do team fights, all the pleasures of MOBAs and PC action games in the palm of your hand! Fuel your esports spirit!
 
@@ -30,14 +30,14 @@ Like classic MOBAs, no need to train or pay for statistics. The winners and lose
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: Mod Transparency Map + One Hit Kill + Free 10k Gold + More**
 
-Download Mobile Legends Bang Bang 1.4.47.4822 MOD (Mod Transparency Map + One Hit Kill + Free 10k Gold + More) Â  APK For Android
+Download Mobile Legends Bang Bang 1.4.47.4822 MOD (Mod Transparency Map + One Hit Kill + Free 10k Gold + More)   APK For Android
 =================================================================================================================================
 
-Â 
+ 
 
 Additional Information
 ----------------------

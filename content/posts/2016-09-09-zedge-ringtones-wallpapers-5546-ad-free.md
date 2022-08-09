@@ -10,12 +10,12 @@ draft: false
 
 ZEDGE Ringtones Wallpapers 5.54.6 \[Ad Free\] APK For Android
 
-"ZEDGE â¢ is the most reliable app to easily personalize your phone, tablet or other mobile device with wallpapers, ringtones, alarms and free sounds." Join more than 200 million people who trust ZEDGE â¢ all over the world.  
+"ZEDGE ¢ is the most reliable app to easily personalize your phone, tablet or other mobile device with wallpapers, ringtones, alarms and free sounds." Join more than 200 million people who trust ZEDGE ¢ all over the world.  
 \+ Search or browse millions of custom-sized wallpapers to match your phone's home screen or lock screen.  
 \+ Admire popular wallpapers for your home screen or lock among categories such as: scenery, abstract art, motivational quotes, sports, entertainment as well as live wallpapers and other images.  
 \+ Preview and quickly set wallpapers for your home screen or lock screen from the app!  
-\+ Easily set ringtones and notification sounds in the ZEDGE â¢ app, including ringtones for each contact.  
-\+ Gather your ringtones, alarms and other favorite sounds in My ZEDGE â¢ to access them from any device or share them with your friends.
+\+ Easily set ringtones and notification sounds in the ZEDGE ¢ app, including ringtones for each contact.  
+\+ Gather your ringtones, alarms and other favorite sounds in My ZEDGE ¢ to access them from any device or share them with your friends.
 
 **Supported Android**
 

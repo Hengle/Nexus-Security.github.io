@@ -10,7 +10,7 @@ draft: false
 
 Zoner AntiVirus 1.15.5 Unlocked APK For Android
 
-Zoner AntiVirusÂ® is a modern security and antivirus solution for your device. It provides protection against viruses, dialers, Trojans, worms, spyware, adware and other malware as well as protection against phone calls and messages.  
+Zoner AntiVirus® is a modern security and antivirus solution for your device. It provides protection against viruses, dialers, Trojans, worms, spyware, adware and other malware as well as protection against phone calls and messages.  
 **Characteristics:**  
 \* Application protection installed  
 \* Analysis on access and on demand  
@@ -21,7 +21,7 @@ Zoner AntiVirusÂ® is a modern security and antivirus solution for your device.
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 Download Zoner AntiVirus 1.15.5 Unlocked APK For Android
 ========================================================

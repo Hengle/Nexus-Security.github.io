@@ -19,7 +19,7 @@ For More Info
 **Supported Android**  
 {4.0 and UP}  
 Supported Android Version:-  
-Ice Cream Sandwich (4.0â"4.0.4)- Jelly Bean (4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) or UP
+Ice Cream Sandwich (4.0"4.0.4)- Jelly Bean (4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) or UP
 
 Download Mad Skills Motocross 2 2.5.8 Hack MOD Unlocked APK For Android
 =======================================================================

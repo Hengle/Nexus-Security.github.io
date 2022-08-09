@@ -10,12 +10,12 @@ draft: false
 
 The Sims FreePlay 5.51.0 APK + MOD (Unlimited Lifestyle + Social Points + Simoleons) APK For Android
 
-From the creators of the best-selling series of simulation games The Sims â¢, a complete Sims experience on mobile! What is your story? Create it with your Sims in real time, customize their wardrobes and their homes and help them live their dreams. Reach goals to earn Simoleons, expand your Sim City, and collect rewards along the way. Keep your Sims happy and watch them thrive by helping them live fun and fulfilling lives!
+From the creators of the best-selling series of simulation games The Sims ¢, a complete Sims experience on mobile! What is your story? Create it with your Sims in real time, customize their wardrobes and their homes and help them live their dreams. Reach goals to earn Simoleons, expand your Sim City, and collect rewards along the way. Keep your Sims happy and watch them thrive by helping them live fun and fulfilling lives!
 
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: Unlimited Lifestyle + Social Points + Simoleons  
 **

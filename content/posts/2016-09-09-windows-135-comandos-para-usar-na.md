@@ -28,7 +28,7 @@ Existem centenas de recursos se não milhares, que podemos utilizar no [Windows
     
 5.  Assistente de [acessibilidade](http://suporteninja.com/acessibilidade/) = accwiz
     
-6.  Assistente de câmara ou scaner = wiaacmgr
+6.  Assistente de cmara ou scaner = wiaacmgr
     
 7.  Assistente de configuração de rede = netsetup.cpl
     
@@ -246,7 +246,7 @@ Existem centenas de recursos se não milhares, que podemos utilizar no [Windows
     
 114.  Real Player (se instalado) = realplay
     
-115.  Scanners e câmaras = sticpl.cpl
+115.  Scanners e cmaras = sticpl.cpl
     
 116.  Serviço de indexação = ciadv.msc
     

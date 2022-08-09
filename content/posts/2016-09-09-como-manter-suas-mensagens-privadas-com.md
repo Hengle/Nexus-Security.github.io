@@ -19,7 +19,7 @@ por [![](https://secure.gravatar.com/avatar/355baff245d0eb9e356aef1ddc5484b4?s=
 
 Como manter suas mensagens privadas com o Signal.
 
-Os aplicativos de mensagens mudaram a maneira como nos comunicamos. Onde estaríamos hoje sem SMS? Você pode imaginar voltar para um mundo onde a comunicação quase instantânea não é generalizada? Neste artigo, aprenda como manter suas mensagens privadas com o Signal.
+Os aplicativos de mensagens mudaram a maneira como nos comunicamos. Onde estaríamos hoje sem SMS? Você pode imaginar voltar para um mundo onde a comunicação quase instantnea não é generalizada? Neste artigo, aprenda como manter suas mensagens privadas com o Signal.
 
 Hoje em dia, temos muitas opções de mensagens, além de SMS e MMS. Existem Skype, iMessage, Facebook Messenger, Twitter (com e sem mensagens diretas), WeChat, WhatsApp, SnapChat e muito mais. Muitos deles são criptografados e muitas pessoas presumem que suas comunicações nesses aplicativos são privadas e seguras. Mas será que são mesmo? Os aplicativos hospedados na nuvem que estão colhendo metadados de suas conversas e depois usando-os para vender produtos que oferecem suporte aos serviços deles, podem não ser seus amigos, afinal.
 
@@ -51,7 +51,7 @@ O
 
 [Signal](https://signal.org/) faz tudo certo para aqueles de nós que já tiveram o suficiente desses olhares indiscretos. A organização por trás do Signal é aberta, para que possamos saber o que está fazendo com nossos dados. Além disso, a organização se dedica a ampliar o uso do Signal sem coletar dados do usuário, e todas as comunicações são criptografadas de ponta a ponta com as chaves armazenadas nos dispositivos dos usuários.  
 
-Além disso, o aplicativo móvel é robusto e confiável e permite que os usuários façam chamadas de vídeo e voz pela Internet. A família de Chris usa o Signal há mais de 18 meses para se comunicar em todo o mundo, e ele diz que “a qualidade da chamada é muito, muito melhor do que com a concorrência”. O Signal fornece uma qualidade de chamada de voz e vídeo extremamente alta, mesmo em conexões de longa distância.
+Além disso, o aplicativo móvel é robusto e confiável e permite que os usuários façam chamadas de vídeo e voz pela Internet. A família de Chris usa o Signal há mais de 18 meses para se comunicar em todo o mundo, e ele diz que “a qualidade da chamada é muito, muito melhor do que com a concorrência”. O Signal fornece uma qualidade de chamada de voz e vídeo extremamente alta, mesmo em conexões de longa distncia.
 
 Chris diz:
 

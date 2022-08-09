@@ -11,7 +11,7 @@ draft: false
 OpenSignal 3G 4G & 5G Signal & WiFi Speed Test 6.4.0-1 APK For Android
 
 OpenSignal is a comprehensive mobile connectivity and network signal speed testing tool.  
-Speed ââtest, including download, download and latency - for 3G, 4G / LTE, 5G and WiFi  
+Speed test, including download, download and latency - for 3G, 4G / LTE, 5G and WiFi  
 Find the best network provider in your area. Compare coverage on Sprint, T-Mobile, AT&T, Verizon and more.  
 **Characteristics:**  
 \* Test tab with speed test and video streaming quality to analyze mobile video performance with results for time spent in buffer, loading and playback  
@@ -23,7 +23,7 @@ Find the best network provider in your area. Compare coverage on Sprint, T-Mobil
 **Supported Android**  
 {4.1 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 Download OpenSignal 3G 4G & 5G Signal & WiFi Speed Test 6.4.0-1 APK For Android
 ===============================================================================

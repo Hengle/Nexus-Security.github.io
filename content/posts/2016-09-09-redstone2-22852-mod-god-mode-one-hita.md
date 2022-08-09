@@ -1,14 +1,14 @@
 ---
-title: 'Redstone2 2.2.852 MOD (God Mode + One Hit)Â  APK For Android'
+title: 'Redstone2 2.2.852 MOD (God Mode + One Hit)  APK For Android'
 date: 2019-12-07T03:56:00+01:00
 draft: false
 ---
 
-![Redstone2 2.2.852 MOD (God Mode + One Hit)Â  APK For Android](https://i0.wp.com/apkhome.net/wp-content/uploads/2019/11/Redstone2-1.png "Redstone2 2.2.852 MOD (God Mode + One Hit)Â  APK For Android")
+![Redstone2 2.2.852 MOD (God Mode + One Hit)  APK For Android](https://i0.wp.com/apkhome.net/wp-content/uploads/2019/11/Redstone2-1.png "Redstone2 2.2.852 MOD (God Mode + One Hit)  APK For Android")
 
   
 
-Redstone2 2.2.852 MOD (God Mode + One Hit)Â  APK For Android
+Redstone2 2.2.852 MOD (God Mode + One Hit)  APK For Android
 
 Classic RPG reincarnated by mobile
 
@@ -34,11 +34,11 @@ RPG A community system where unique emotions live!
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: God Mode + One Hit**
 
-Download Redstone2 2.2.852 MOD (God Mode + One Hit)Â  APK For Android
+Download Redstone2 2.2.852 MOD (God Mode + One Hit)  APK For Android
 =====================================================================
 
 Additional Information

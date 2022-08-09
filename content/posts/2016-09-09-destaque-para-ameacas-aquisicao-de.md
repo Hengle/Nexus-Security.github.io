@@ -41,7 +41,7 @@ Esse primeiro login é uma pergunta sem resposta em termos do objetivo em potenc
   
 Os invasores estão ficando mais inteligentes sobre geografia  
   
-Doze dias após o login inicial da Indonésia, em 7 de agosto, há uma série de três conjuntos diferentes de logins e e-mails enviados de diferentes IPs anônimos originários de Scottsdale, Arizona e em algum lugar de Nova York. Em cada instância, apenas um email é enviado, o que pode ser um sinal de um invasor enviando um único email de teste em preparação para um possível ataque maior.  
+Doze dias após o login inicial da Indonésia, em 7 de agosto, há uma série de três conjuntos diferentes de logins e e-mails enviados de diferentes IPs anônimos originários de Scottsdale, Arizona e em algum lugar de Nova York. Em cada instncia, apenas um email é enviado, o que pode ser um sinal de um invasor enviando um único email de teste em preparação para um possível ataque maior.  
   
 Dois dias depois, em 9 de agosto, há um longo conjunto de cerca de 50 e-mails de phishing enviados de Scottsdale, Arizona. (Observação: a maioria dos 50 eventos de email foi removida da linha do tempo por concisão.) Depois, há uma série de logons estrangeiros no servidor de email da conta do Usuário X, mas nenhum email foi enviado. Finalmente, há uma série de e-mails de phishing enviados de um IP vinculado a algum lugar da Virgínia.  
   

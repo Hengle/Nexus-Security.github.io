@@ -4,17 +4,17 @@ date: 2020-01-25T05:42:00+01:00
 draft: false
 ---
 
-![Everdo to do list and GTDÃ app Pro 0.101.0 APK For Android](https://i0.wp.com/apkhome.net/wp-content/uploads/2020/01/Everdo-to-do-list-and-GTDÂ-app-Pro-0.101.0.png "Everdo to do list and GTDÃ app Pro 0.101.0 APK For Android")
+![Everdo to do list and GTDÃ app Pro 0.101.0 APK For Android](https://i0.wp.com/apkhome.net/wp-content/uploads/2020/01/Everdo-to-do-list-and-GTD-app-Pro-0.101.0.png "Everdo to do list and GTDÃ app Pro 0.101.0 APK For Android")
 
   
 
 Everdo to do list and GTDÃ app Pro 0.101.0 APK For Android
 
-Get the tasks out of your head. Organize your life with Everdo - a private, powerful and low-friction GTD app. Everdo is not a generic to-do list. It is built with GTDÂ® in mind (Getting Things DoneÂ®). It helps you do what's important and not miss anything.  
+Get the tasks out of your head. Organize your life with Everdo - a private, powerful and low-friction GTD app. Everdo is not a generic to-do list. It is built with GTD® in mind (Getting Things Done®). It helps you do what's important and not miss anything.  
 **Supported Android**  
 {Varies with device}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 Download Everdo to do list and GTDÃ app Pro 0.101.0 APK For Android
 ====================================================================

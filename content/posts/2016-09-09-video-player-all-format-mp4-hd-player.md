@@ -14,7 +14,7 @@ Video player Any HD format-Mp4 player is the simplest phone video player, has po
 **Characteristics:**  
 \* ï¸Play HD, Full HD, 1080p and 4K videos.  
 \* ï¸Supports all video formats: MKV, MP4, M4V, AVI, MOV, 3GP, FLV, WMV, RMVB, TS etc.  
-\* Controller Speed ââcontroller (reading speed)  
+\* Controller Speed controller (reading speed)  
 \* Night mode, locked video screen, fast mute  
 \* Hardware acceleration  
 \* Multimedia controls: easy control of volume, brightness and playback progress.  
@@ -24,7 +24,7 @@ Video player Any HD format-Mp4 player is the simplest phone video player, has po
 **Supported Android**  
 {4.2 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 Download Video Player All format Mp4 hd player Premium 1.0.9 APK For Android
 ============================================================================

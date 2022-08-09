@@ -17,7 +17,7 @@ Build power plants, produce energy, develop your energy activity. Research, cons
 
 Game Great business management game in the energy sector
 
-Welcome to Reactor - Energy Sector Tycoon, a pixel-based graphic that gives you tons of on-site fun. In this tycoon game, you will build your energy business, make a fortune, generate energy, build an energy ecosystem for your city, and upgrade power plants. Sell ââenergy and become a billionaire and a clicker hero. But it's not as easy as you might think, it's a job tycoon because you can lose your power plants in an instant. You have to manage the production of heat, convert it into energy, otherwise the power plants will explode.
+Welcome to Reactor - Energy Sector Tycoon, a pixel-based graphic that gives you tons of on-site fun. In this tycoon game, you will build your energy business, make a fortune, generate energy, build an energy ecosystem for your city, and upgrade power plants. Sell energy and become a billionaire and a clicker hero. But it's not as easy as you might think, it's a job tycoon because you can lose your power plants in an instant. You have to manage the production of heat, convert it into energy, otherwise the power plants will explode.
 
 \* Energy Miner Tycoon - Evolutionary strategy
 
@@ -27,7 +27,7 @@ Research new tenchologies and build new power plants, sell energy, do everything
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: Unlimited Money**
 

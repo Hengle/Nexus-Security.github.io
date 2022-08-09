@@ -10,7 +10,7 @@ draft: false
 
 LEGO Jurassic World 2.0.1.18 APK + MOD (Unlimited Money + More) APK For Android
 
-Building on the epic adventures of Jurassic Park, The Lost World: Jurassic Park and Jurassic Park III, as well as global success Jurassic World, LEGO Jurassic World â¢ is the first video game in which players can revisit and play experience of the four films in the Jurassic series. Reimagined as a LEGO and told with the iconic humor of TT Games, this thrilling adventure recreates unforgettable scenes and action\*rich sequences from movies, allowing fans to relive the key moments and fully explore the great expanses of Isla Nublar and Isla Sorna.
+Building on the epic adventures of Jurassic Park, The Lost World: Jurassic Park and Jurassic Park III, as well as global success Jurassic World, LEGO Jurassic World ¢ is the first video game in which players can revisit and play experience of the four films in the Jurassic series. Reimagined as a LEGO and told with the iconic humor of TT Games, this thrilling adventure recreates unforgettable scenes and action\*rich sequences from movies, allowing fans to relive the key moments and fully explore the great expanses of Isla Nublar and Isla Sorna.
 
 **Features:**  
 \* Relive the highlights of the four Jurassic movies: It took 65 million years for this adventure to become possible \* now in fun LEGO bricks!  
@@ -20,7 +20,7 @@ Building on the epic adventures of Jurassic Park, The Lost World: Jurassic Park 
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: Unlimited Money + More**
 

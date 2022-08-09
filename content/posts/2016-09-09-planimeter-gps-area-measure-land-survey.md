@@ -10,7 +10,7 @@ draft: false
 
 Planimeter GPS area measure land survey on map 5.3.1 Paid APK For Android
 
-Planimeter is the best surveying application and tool for measuring the area of ââthe land. You can also measure distance, perimeter, bearing, angle and GPS coordinates in different formats on Google Maps. You can save, edit, label, view, share your measurements as KML data files and screenshots.  
+Planimeter is the best surveying application and tool for measuring the area of the land. You can also measure distance, perimeter, bearing, angle and GPS coordinates in different formats on Google Maps. You can save, edit, label, view, share your measurements as KML data files and screenshots.  
 **Characteristics:**  
 \* Automatic measurement of the live map using GPS tracking with time interval and accuracy settings;  
 \* Magnifying glass for very precise positioning of the pins for distance and surface measurement.  
@@ -21,7 +21,7 @@ Planimeter is the best surveying application and tool for measuring the area of 
 **Supported Android**  
 {Varies with device}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 Download Planimeter GPS area measure land survey on map 5.3.1 Paid APK For Android
 ==================================================================================

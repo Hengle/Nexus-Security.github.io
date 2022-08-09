@@ -1,14 +1,14 @@
 ---
-title: 'Bob The Robber 4 1.27 MOD (Unlimited Money + Unlocked)Â  APK For Android'
+title: 'Bob The Robber 4 1.27 MOD (Unlimited Money + Unlocked)  APK For Android'
 date: 2020-01-29T18:00:00+01:00
 draft: false
 ---
 
-![Bob The Robber 4 1.27 MOD (Unlimited Money + Unlocked)Â  APK For Android](https://i0.wp.com/apkhome.net/wp-content/uploads/2020/01/Bob-The-Robber-4-1.27-MOD-Unlimited-Money-Unlocked.png "Bob The Robber 4 1.27 MOD (Unlimited Money + Unlocked)Â  APK For Android")
+![Bob The Robber 4 1.27 MOD (Unlimited Money + Unlocked)  APK For Android](https://i0.wp.com/apkhome.net/wp-content/uploads/2020/01/Bob-The-Robber-4-1.27-MOD-Unlimited-Money-Unlocked.png "Bob The Robber 4 1.27 MOD (Unlimited Money + Unlocked)  APK For Android")
 
   
 
-Bob The Robber 4 1.27 MOD (Unlimited Money + Unlocked)Â  APK For Android
+Bob The Robber 4 1.27 MOD (Unlimited Money + Unlocked)  APK For Android
 
 Prepare for action! Bob The Robber 4 is a brand new Stealth adventure puzzle, built from the ground up to work best on your phone or tablet.
 
@@ -26,11 +26,11 @@ This summer a brand new Bob the Robber world opens! Don't settle for clones, thi
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE : Unlimited Money + Unlocked**
 
-Download Bob The Robber 4 1.27 MOD (Unlimited Money + Unlocked)Â  APK For Android
+Download Bob The Robber 4 1.27 MOD (Unlimited Money + Unlocked)  APK For Android
 =================================================================================
 
 Additional Information

@@ -14,8 +14,8 @@ Browse over 150 beautiful handcrafted wallpapers as well as Unsplash wallpapers 
 **Characteristics:**  
 \* Minimal design  
 \* No ads or other nonsense  
-\* âWallpaper of the dayâ section with a wallpaper organized daily  
-\* âFeaturedâ section with high quality wallpapers  
+\* Wallpaper of the day section with a wallpaper organized daily  
+\* Featured section with high quality wallpapers  
 \* "Research" for your specific taste  
 \* "Categories" to sort wallpapers to your liking (available in the search menu)  
 \* "Color categories" to sort the wallpapers after your color preference (available in the search menu)  
@@ -23,7 +23,7 @@ Browse over 150 beautiful handcrafted wallpapers as well as Unsplash wallpapers 
 **Supported Android**  
 {6.0 and UP}  
 **Supported Android Version**:-  
-Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 Download PaperSplash PRO Exclusive Wallpapers + Unsplash 1.12 Build 120 APK For Android
 =======================================================================================

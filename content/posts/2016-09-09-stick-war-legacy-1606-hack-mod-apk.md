@@ -19,7 +19,7 @@ For More Info
 **Supported Android**  
 {4.4 and UP}  
 Supported Android Version:-  
-KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) or UP
+KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) or UP
 
 Download Stick War Legacy 1.6.06 Hack MOD APK Unlimited Money APK For Android
 =============================================================================

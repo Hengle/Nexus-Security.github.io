@@ -24,7 +24,7 @@ Reduce video size, reduce video, save your device storage space.Batch Image Comp
 **Supported Android**  
 {6.0 and UP}  
 **Supported Android Version**:-  
-Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 Download Video Compressor Fast Compress Video & Photo Premium 1.1.43 APK For Android
 ====================================================================================

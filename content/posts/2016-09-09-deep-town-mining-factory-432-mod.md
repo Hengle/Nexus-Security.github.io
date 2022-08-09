@@ -10,14 +10,14 @@ draft: false
 
 Deep Town Mining Factory 4.3.2 MOD (Unlimited Money) APK For Android
 
-Deep Town is a simulation game that mixes management of mining and crafts to earn profits and advance your city. The goal of this miner strategy simulator is to build and optimize resources to gain as much productivity as to help you dig deeper: use special spellsÂ  to defeat more than 10 different elders to discover the crust of your city ââthen use a rocketÂ  to travel outside space to exploit on asteroids!Â  Progress through the game for the chance to terraform your planet!
+Deep Town is a simulation game that mixes management of mining and crafts to earn profits and advance your city. The goal of this miner strategy simulator is to build and optimize resources to gain as much productivity as to help you dig deeper: use special spells  to defeat more than 10 different elders to discover the crust of your city then use a rocket  to travel outside space to exploit on asteroids!  Progress through the game for the chance to terraform your planet!
 
 **Features:**  
 \* Free to play  
 \* Free daily safe  
 \* Automate your mining workflow to increase your inactive income  
 \* Upgrade your control panel to activate your spells to destroy the blocks FASTER!  
-\* Dig deeperÂ  to discover more areas to build mines, oil buildings and chemical mines!  
+\* Dig deeper  to discover more areas to build mines, oil buildings and chemical mines!  
 \* Send exploring robots to hidden caves on secret expeditions  
 \* Take advantage of the sale of your items at the right time on the trading portal and get rich!  
 \* Improve your drone bay and increase your productivity!  
@@ -28,7 +28,7 @@ Deep Town is a simulation game that mixes management of mining and crafts to ear
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: Unlimited Money  
 **

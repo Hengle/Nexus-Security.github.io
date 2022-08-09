@@ -193,7 +193,7 @@ Rússia
 
 353
 
-Ucrânia
+Ucrnia
 
 270
 
@@ -205,7 +205,7 @@ Portugal
 
 90
 
-Finlândia
+Finlndia
 
 56
 

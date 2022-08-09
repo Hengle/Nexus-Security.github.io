@@ -10,9 +10,9 @@ draft: false
 
 Video Speed Slow Motion Fast Premium 1.75 APK For Android
 
-Video Speed ââVideo Editor: The Best Slow Motion, Fast Motion Editor for Android. Create multiple Fast Motion & Slow Motion in the same video! Have a lot of fun with the app! Professionals can also use it to improve tennis game, football, swimming and much more.  
+Video Speed Video Editor: The Best Slow Motion, Fast Motion Editor for Android. Create multiple Fast Motion & Slow Motion in the same video! Have a lot of fun with the app! Professionals can also use it to improve tennis game, football, swimming and much more.  
 \+ Intuitive controls for selecting segments of the video.  
-\+ Set the speed of your videos to pre-set Slow motion and fast motion values. OR define custom values ââwith slider. A wide Slow & fast range of playback speed to choose from.  
+\+ Set the speed of your videos to pre-set Slow motion and fast motion values. OR define custom values with slider. A wide Slow & fast range of playback speed to choose from.  
 \+ Professionals can use the app to improve their game of tennis, swimming, running, etc. They can use the slow motion and see where they need to improve again.  
 \+ User interface is beautiful  
 \+ Video image processing is performed in an optimal way to create the best video.
@@ -20,7 +20,7 @@ Video Speed ââVideo Editor: The Best Slow Motion, Fast Motion Editor f
 **Supported Android**  
 {4.0 and UP}  
 Supported Android Version:-  
-Ice Cream Sandwich (4.0â"4.0.4) - Jelly Bean (4.1â"4.3.1) - KitKat (4.4â"4.4.4) - Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1)
+Ice Cream Sandwich (4.0"4.0.4) - Jelly Bean (4.1"4.3.1) - KitKat (4.4"4.4.4) - Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1)
 
 Download Video Speed Slow Motion Fast Premium 1.75 APK For Android
 ==================================================================

@@ -1,14 +1,14 @@
 ---
-title: 'Minion Rush Despicable Me Official Game 6.9.0e APK + MOD (Free Purchase + Anti ban)Â  APK For Android'
+title: 'Minion Rush Despicable Me Official Game 6.9.0e APK + MOD (Free Purchase + Anti ban)  APK For Android'
 date: 2019-12-06T21:56:00+01:00
 draft: false
 ---
 
-![Minion Rush Despicable Me Official Game 6.9.0e APK + MOD (Free Purchase + Anti ban)Â  APK For Android](https://i0.wp.com/apkhome.net/wp-content/uploads/2019/12/Minion-Rush-Despicable-Me-Official-Game.png "Minion Rush Despicable Me Official Game 6.9.0e APK + MOD (Free Purchase + Anti ban)Â  APK For Android")
+![Minion Rush Despicable Me Official Game 6.9.0e APK + MOD (Free Purchase + Anti ban)  APK For Android](https://i0.wp.com/apkhome.net/wp-content/uploads/2019/12/Minion-Rush-Despicable-Me-Official-Game.png "Minion Rush Despicable Me Official Game 6.9.0e APK + MOD (Free Purchase + Anti ban)  APK For Android")
 
   
 
-Minion Rush Despicable Me Official Game 6.9.0e APK + MOD (Free Purchase + Anti ban)Â  APK For Android
+Minion Rush Despicable Me Official Game 6.9.0e APK + MOD (Free Purchase + Anti ban)  APK For Android
 
 MORE THAN 900 MILLION PLAYERS WERE RUSHED ON MINION RUSH. JOIN THIS WONDERFUL ADVENTURE!
 
@@ -33,11 +33,11 @@ THE EMBLEMATIC PLACES
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: Free Purchase + Anti ban**
 
-Download Minion Rush Despicable Me Official Game 6.9.0e APK + MOD (Free Purchase + Anti ban)Â  APK For Android
+Download Minion Rush Despicable Me Official Game 6.9.0e APK + MOD (Free Purchase + Anti ban)  APK For Android
 ==============================================================================================================
 
 **Original version**

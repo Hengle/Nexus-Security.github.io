@@ -1,5 +1,5 @@
 ---
-title: 'AxE Alliance vs Empire 1.09.00 APK + MOD (MONSTER CAN''T ATTACK)Â  APK For Android'
+title: 'AxE Alliance vs Empire 1.09.00 APK + MOD (MONSTER CAN''T ATTACK)  APK For Android'
 date: 2019-12-08T00:56:00+01:00
 draft: false
 ---
@@ -8,7 +8,7 @@ draft: false
 
   
 
-AxE Alliance vs Empire 1.09.00 APK + MOD (MONSTER CAN'T ATTACK)Â  APK For Android
+AxE Alliance vs Empire 1.09.00 APK + MOD (MONSTER CAN'T ATTACK)  APK For Android
 
 Join forces for the fight! Here is AxE: Alliance vs Empire, an innovative MMORPG that takes place in the vast expanses of a mysterious and fantastic open world. Engage in the epic conflict between two powerful factions that aim to control the fate of the entire world.
 
@@ -23,11 +23,11 @@ COOP AND COMPETITIVE MODE
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: MONSTER CAN'T ATTACK**
 
-Download AxE Alliance vs Empire 1.09.00 APK + MOD (MONSTER CAN'T ATTACK)Â  APK For Android
+Download AxE Alliance vs Empire 1.09.00 APK + MOD (MONSTER CAN'T ATTACK)  APK For Android
 ==========================================================================================
 
 **Original version**

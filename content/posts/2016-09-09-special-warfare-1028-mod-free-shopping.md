@@ -12,12 +12,12 @@ Special Warfare 1.0.28 MOD (Free Shopping) APK For Android
 
 Special Warfare is an independent modern FPS war game developed by Battle Fire Studio. The online multiplayer combat shooter uses PBR material, HDR effect, ultra HD texture, real-time lighting rendering, and the game has very nice light and shadow effects. In multiplayer mode, randomly join the 6 camps (Delta troops, mercenaries, SEALs, army, special police, terrorists), more than 50 types of modern weapons and experience a warm battle with the players. In zombie mode, you can use a weapon in your hand to kill an army of zombies infected with a biochemical virus.
 
-The background of the game has been set in the rapid advancement of modern biotechnology. Politics and the army are controlled by biovalves. In order to compete for conflicts in various regions, the leaks of biochemical viruses cause a large area of ââinfection, the darkness falls and the houses in memory are mutated. The invasion of the zombies, the world is in a bloody slaughter, the mysterious organization has formed a special war unit to fight for the future of humanity.
+The background of the game has been set in the rapid advancement of modern biotechnology. Politics and the army are controlled by biovalves. In order to compete for conflicts in various regions, the leaks of biochemical viruses cause a large area of infection, the darkness falls and the houses in memory are mutated. The invasion of the zombies, the world is in a bloody slaughter, the mysterious organization has formed a special war unit to fight for the future of humanity.
 
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: Free Shopping  
 **

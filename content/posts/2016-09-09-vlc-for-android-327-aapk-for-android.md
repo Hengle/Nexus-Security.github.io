@@ -1,18 +1,18 @@
 ---
-title: 'VLC for Android 3.2.7 Â APK For Android'
+title: 'VLC for Android 3.2.7  APK For Android'
 date: 2020-01-25T05:28:00+01:00
 draft: false
 ---
 
-![VLC for Android 3.2.7 Â APK For Android](https://i1.wp.com/apkhome.net/wp-content/uploads/2020/01/VLC-for-Android.png "VLC for Android 3.2.7 Â APK For Android")
+![VLC for Android 3.2.7  APK For Android](https://i1.wp.com/apkhome.net/wp-content/uploads/2020/01/VLC-for-Android.png "VLC for Android 3.2.7  APK For Android")
 
   
 
-VLC for Android 3.2.7 Â APK For Android
+VLC for Android 3.2.7  APK For Android
 
-VLC media player is a free, open source multiplatform media player that plays most multimedia files as well as discs, devices and network streaming protocols. This is the port of the VLC media player to the Android â¢ platform. VLC for Android can play all video and audio files, as well as network streams, network shares and players, and DVD ISOs, like the desktop version of VLC.  
+VLC media player is a free, open source multiplatform media player that plays most multimedia files as well as discs, devices and network streaming protocols. This is the port of the VLC media player to the Android ¢ platform. VLC for Android can play all video and audio files, as well as network streams, network shares and players, and DVD ISOs, like the desktop version of VLC.  
 **Characteristics:**  
-\* VLC for AndroidÂ  plays most local video and audio files, as well as network streams, DVD ISOs, as well as the desktop version of VLC.  
+\* VLC for Android  plays most local video and audio files, as well as network streams, DVD ISOs, as well as the desktop version of VLC.  
 \* All formats are supported, including MKV, MP4, AVI, MOV, Ogg, FLAC, TS, M2TS, Wv and AAC.  
 \* VLC for Android has a multimedia library for audio and video files and allows you to browse folders directly.  
 \* VLC supports multitrack audio and subtitles. It supports automatic rotation, aspect ratio settings and gestures to control volume, brightness and search.  
@@ -20,9 +20,9 @@ VLC media player is a free, open source multiplatform media player that plays mo
 **Supported Android**  
 {4.2 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
-Download VLC for Android 3.2.7 Â APK For Android
+Download VLC for Android 3.2.7  APK For Android
 ================================================
 
 Additional Information

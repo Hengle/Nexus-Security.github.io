@@ -24,7 +24,7 @@ The sciences are traditionally viewed as a set of difficult subjects for student
     *   Use club time to play scientific games, watch documentaries, and try different experiments.
     *   Have competitions between club members or participate in events like the [Science Olympiad](https://www.wikihow.com/Prepare-for-a-Science-Olympiad-Competition "Prepare for a Science Olympiad Competition") as a team.[\[1\]](#_note-1)
     *   Ask your science teacher if they would be willing to supervise your club.
-3.  Perform experiments. Simple experiments such as [making a papier mache volcano](https://www.wikihow.com/Make-a-Papier-M%C3%A2ch%C3%A9-Volcano "Make a Papier Mâché Volcano") or [the Cartesian Diver](https://www.wikihow.com/Make-a-Cartesian-Diver-with-a-Ketchup-Packet "Make a Cartesian Diver with a Ketchup Packet") are easily done at home in your spare time. More complicated experiments can be undertaken for class projects and science fairs.
+3.  Perform experiments. Simple experiments such as [making a papier mache volcano](https://www.wikihow.com/Make-a-Papier-M%C3%A2ch%C3%A9-Volcano "Make a Papier Mché Volcano") or [the Cartesian Diver](https://www.wikihow.com/Make-a-Cartesian-Diver-with-a-Ketchup-Packet "Make a Cartesian Diver with a Ketchup Packet") are easily done at home in your spare time. More complicated experiments can be undertaken for class projects and science fairs.
     
     [![Enjoy Studying Science Step 3 Version 2.jpg](https://www.wikihow.com/images/thumb/c/c3/Enjoy-Studying-Science-Step-3-Version-2.jpg/aid3660866-v4-728px-Enjoy-Studying-Science-Step-3-Version-2.jpg)](https://www.wikihow.com/Image:Enjoy-Studying-Science-Step-3-Version-2.jpg)
     

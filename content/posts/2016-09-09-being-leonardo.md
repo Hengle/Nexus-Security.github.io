@@ -77,7 +77,7 @@ In the end, Leonardo’s art was less about the objects he created than about hi
 **James Hankins** is a Professor of History at Harvard University. His new book, _Virtue Politics: Soulcraft and Statecraft in Renaissance Italy_, will be published by the Belknap Press of Harvard University in November.
 
 This article originally appeared in The New Criterion, Volume 38 Number 4, on page 4  
-Copyright Â© 2019 The New Criterion | https://ift.tt/ZGbysW  
+Copyright © 2019 The New Criterion | https://ift.tt/ZGbysW  
 [https://newcriterion.com//issues/2019/12/being-leonardo](https://newcriterion.com/issues/2019/12/being-leonardo "https://newcriterion.com//issues/2019/12/being-leonardo")
 
   

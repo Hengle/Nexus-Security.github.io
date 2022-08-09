@@ -17,22 +17,22 @@ Have a good time and enjoy!
 
 See the list below:
 
-Call of Mini â¢ Zombies  
-Call of Mini â¢ Zombies 2  
-Call of Mini â¢ DinoHunter  
+Call of Mini ¢ Zombies  
+Call of Mini ¢ Zombies 2  
+Call of Mini ¢ DinoHunter  
 Mini Call: Sniper  
-Call of Mini â¢ Brawler  
-TinyLegends â¢ Heroes  
-TinyLegends â¢ Monster Crasher  
-TinyLegends â¢ Crazy Knight  
+Call of Mini ¢ Brawler  
+TinyLegends ¢ Heroes  
+TinyLegends ¢ Monster Crasher  
+TinyLegends ¢ Crazy Knight  
 DevilDark: The Fallen Kingdom  
-Call of Mini â¢ Squad  
-Call for Mini â¢ Double Shot
+Call of Mini ¢ Squad  
+Call for Mini ¢ Double Shot
 
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: Unlimited Money**
 

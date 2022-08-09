@@ -1,14 +1,14 @@
 ---
-title: 'Apollo Space Flight Agency Spaceship Simulator 14.0 MOD (Unlock level)Â  APK For Android'
+title: 'Apollo Space Flight Agency Spaceship Simulator 14.0 MOD (Unlock level)  APK For Android'
 date: 2019-12-08T21:14:00+01:00
 draft: false
 ---
 
-![Apollo Space Flight Agency Spaceship Simulator 14.0 MOD (Unlock level)Â  APK For Android](https://i0.wp.com/apkhome.net/wp-content/uploads/2019/12/Apollo-Space-Flight-Agency-Spaceship-Simulator.png "Apollo Space Flight Agency Spaceship Simulator 14.0 MOD (Unlock level)Â  APK For Android")
+![Apollo Space Flight Agency Spaceship Simulator 14.0 MOD (Unlock level)  APK For Android](https://i0.wp.com/apkhome.net/wp-content/uploads/2019/12/Apollo-Space-Flight-Agency-Spaceship-Simulator.png "Apollo Space Flight Agency Spaceship Simulator 14.0 MOD (Unlock level)  APK For Android")
 
   
 
-Apollo Space Flight Agency Spaceship Simulator 14.0 MOD (Unlock level)Â  APK For Android
+Apollo Space Flight Agency Spaceship Simulator 14.0 MOD (Unlock level)  APK For Android
 
 DISCOVER THE LANDING APOLLO 11 MOON MISSIONS WITH THE APOLLO FLIGHT AGENCY SIMULATOR!
 
@@ -25,11 +25,11 @@ Lunar module moon landing - try to land the lunar module of the Apollo Space Shu
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: Unlock level**
 
-Download Apollo Space Flight Agency Spaceship Simulator 14.0 MOD (Unlock level)Â  APK For Android
+Download Apollo Space Flight Agency Spaceship Simulator 14.0 MOD (Unlock level)  APK For Android
 =================================================================================================
 
 Additional Information

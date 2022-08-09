@@ -10,9 +10,9 @@ draft: false
 
 Simons Cat Crunch Time Puzzle Adventure 1.42. MOD (Unlimited Lives + Coins) APK For Android
 
-Evil crows have swept away Simonâs Catâs favorite treats and only you can help him find them!
+Evil crows have swept away Simons Cats favorite treats and only you can help him find them!
 
-Join Simonâs Cat, Maisy, ChloÃ© and Jazz, and a troop of kittens determined on a colorful adventure through fabulous new places where treats are just waiting to be eaten.  
+Join Simons Cat, Maisy, ChloÃ© and Jazz, and a troop of kittens determined on a colorful adventure through fabulous new places where treats are just waiting to be eaten.  
 Get ready to collect tasty treats, fight big bad guys and make friends with a multitude of animal creatures in this FREE puzzle game with extra CATitude!
 
 Simple and addictive puzzle gameplay! Connect the treats of the same color to make a delicious chain!
@@ -22,7 +22,7 @@ Travel the neighborhood in six different game modes and hundreds of challenging 
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: Unlimited Lives + Coins**
 

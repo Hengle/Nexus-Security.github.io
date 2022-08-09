@@ -1,14 +1,14 @@
 ---
-title: 'PicsArt Photo Editor Pic, Video & Collage Maker 13.8.5 MOD (NoAds)Â  APK For Android'
+title: 'PicsArt Photo Editor Pic, Video & Collage Maker 13.8.5 MOD (NoAds)  APK For Android'
 date: 2020-01-18T03:00:00+01:00
 draft: false
 ---
 
-![PicsArt Photo Editor Pic, Video & Collage Maker 13.8.5 MOD (NoAds)Â  APK For Android](https://i0.wp.com/apkhome.net/wp-content/uploads/2020/01/PicsArt-Photo-Editor-Pic-Video-Collage-Maker-13.8.5-MOD-NoAds.png "PicsArt Photo Editor Pic, Video & Collage Maker 13.8.5 MOD (NoAds)Â  APK For Android")
+![PicsArt Photo Editor Pic, Video & Collage Maker 13.8.5 MOD (NoAds)  APK For Android](https://i0.wp.com/apkhome.net/wp-content/uploads/2020/01/PicsArt-Photo-Editor-Pic-Video-Collage-Maker-13.8.5-MOD-NoAds.png "PicsArt Photo Editor Pic, Video & Collage Maker 13.8.5 MOD (NoAds)  APK For Android")
 
   
 
-PicsArt Photo Editor Pic, Video & Collage Maker 13.8.5 MOD (NoAds)Â  APK For Android
+PicsArt Photo Editor Pic, Video & Collage Maker 13.8.5 MOD (NoAds)  APK For Android
 
 700 million+ installations, PicsArt is the # 1 photo collage maker & photo collage maker. Download PicsArt & take advantage of our tools, effects, collage creator, camera, free clipart, 5 million + stickers by users and our drawing tools. PicsArt is all about taking great photos & fun by remixing free photos into great collages & memes.
 
@@ -21,11 +21,11 @@ https://picsart.com/terms-and-conditions/
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: NoAds**
 
-Download PicsArt Photo Editor Pic, Video & Collage Maker 13.8.5 MOD (NoAds)Â  APK For Android
+Download PicsArt Photo Editor Pic, Video & Collage Maker 13.8.5 MOD (NoAds)  APK For Android
 =============================================================================================
 
 Additional Information

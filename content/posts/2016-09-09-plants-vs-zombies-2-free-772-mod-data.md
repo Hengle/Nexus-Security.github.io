@@ -1,14 +1,14 @@
 ---
-title: 'Plants vs Zombies 2 Free 7.7.2 MOD + DATA (Mod Coins + Gems)Â  APK For Android'
+title: 'Plants vs Zombies 2 Free 7.7.2 MOD + DATA (Mod Coins + Gems)  APK For Android'
 date: 2019-12-09T14:14:00+01:00
 draft: false
 ---
 
-![Plants vs Zombies 2 Free 7.7.2 MOD + DATA (Mod Coins + Gems)Â  APK For Android](https://i0.wp.com/apkhome.net/wp-content/uploads/2019/11/Plants-vs-Zombies-2-Free.png "Plants vs Zombies 2 Free 7.7.2 MOD + DATA (Mod Coins + Gems)Â  APK For Android")
+![Plants vs Zombies 2 Free 7.7.2 MOD + DATA (Mod Coins + Gems)  APK For Android](https://i0.wp.com/apkhome.net/wp-content/uploads/2019/11/Plants-vs-Zombies-2-Free.png "Plants vs Zombies 2 Free 7.7.2 MOD + DATA (Mod Coins + Gems)  APK For Android")
 
   
 
-Plants vs Zombies 2 Free 7.7.2 MOD + DATA (Mod Coins + Gems)Â  APK For Android
+Plants vs Zombies 2 Free 7.7.2 MOD + DATA (Mod Coins + Gems)  APK For Android
 
 Discover a completely delirious strategy action game in which you have to face hordes of zombies through different eras, from the beginning to the end of time. Build an army of surviving plants with a lot of fertilizer and protect your brains by fortifying your defenses.
 
@@ -24,11 +24,11 @@ Who will become the best dezombator of all time? Put your green thumb to the tes
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: Mod Coins + Gems**
 
-Download Plants vs Zombies 2 Free 7.7.2 MOD + DATA (Mod Coins + Gems)Â  APK For Android
+Download Plants vs Zombies 2 Free 7.7.2 MOD + DATA (Mod Coins + Gems)  APK For Android
 =======================================================================================
 
 **Mod**

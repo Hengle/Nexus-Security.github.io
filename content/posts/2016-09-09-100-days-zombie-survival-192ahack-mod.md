@@ -1,14 +1,14 @@
 ---
-title: '100 DAYS Zombie Survival 1.92Â Hack MOD APK For Android'
+title: '100 DAYS Zombie Survival 1.92 Hack MOD APK For Android'
 date: 2020-01-27T09:00:00+01:00
 draft: false
 ---
 
-![100 DAYS Zombie Survival 1.92Â Hack MOD APK For Android](https://i1.wp.com/apkhome.net/wp-content/uploads/2016/11/100-DAYS-Zombie-Survival-1.92.png "100 DAYS Zombie Survival 1.92Â Hack MOD APK For Android")
+![100 DAYS Zombie Survival 1.92 Hack MOD APK For Android](https://i1.wp.com/apkhome.net/wp-content/uploads/2016/11/100-DAYS-Zombie-Survival-1.92.png "100 DAYS Zombie Survival 1.92 Hack MOD APK For Android")
 
   
 
-100 DAYS Zombie Survival 1.92Â Hack MOD APK For Android
+100 DAYS Zombie Survival 1.92 Hack MOD APK For Android
 
 Once an ordinary man, Peter is left to survive in the midst of a zombie apocalypse. As he fights against them, his strength and skill develops.  
 Kill the zombies and collect gold to upgrade his teammates and various facilities - to kill more zombies!  
@@ -23,9 +23,9 @@ For More Info
 **Supported Android**  
 {2.3 and UP}  
 Supported Android Version:-  
-Gingerbread (2.3â"2.3.7)- Honeycomb (3.0â"3.2.6)- Ice Cream Sandwich (4.0â"4.0.4)- Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) or UP
+Gingerbread (2.3"2.3.7)- Honeycomb (3.0"3.2.6)- Ice Cream Sandwich (4.0"4.0.4)- Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) or UP
 
-Download 100 DAYS Zombie Survival 1.92Â Hack MOD APK For Android
+Download 100 DAYS Zombie Survival 1.92 Hack MOD APK For Android
 ================================================================
 
 Additional Information

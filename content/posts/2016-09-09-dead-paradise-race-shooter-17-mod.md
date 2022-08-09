@@ -1,14 +1,14 @@
 ---
-title: 'Dead Paradise Race Shooter 1.7 MOD (Unlimited Money)Â  APK For Android'
+title: 'Dead Paradise Race Shooter 1.7 MOD (Unlimited Money)  APK For Android'
 date: 2019-12-29T03:42:00+01:00
 draft: false
 ---
 
-![Dead Paradise Race Shooter 1.7 MOD (Unlimited Money)Â  APK For Android](https://i0.wp.com/apkhome.net/wp-content/uploads/2019/12/Dead-Paradise-Race-Shooter.png "Dead Paradise Race Shooter 1.7 MOD (Unlimited Money)Â  APK For Android")
+![Dead Paradise Race Shooter 1.7 MOD (Unlimited Money)  APK For Android](https://i0.wp.com/apkhome.net/wp-content/uploads/2019/12/Dead-Paradise-Race-Shooter.png "Dead Paradise Race Shooter 1.7 MOD (Unlimited Money)  APK For Android")
 
   
 
-Dead Paradise Race Shooter 1.7 MOD (Unlimited Money)Â  APK For Android
+Dead Paradise Race Shooter 1.7 MOD (Unlimited Money)  APK For Android
 
 Destroy everything in your path without sparing your rockets and ammunition in the dangerous world of a post-apocalyptic New America where motorized gangs reign!
 
@@ -24,11 +24,11 @@ Fight on the post-apocalyptic expanses of New America. The journey begins in the
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: Unlimited Money**
 
-Download Dead Paradise Race Shooter 1.7 MOD (Unlimited Money)Â  APK For Android
+Download Dead Paradise Race Shooter 1.7 MOD (Unlimited Money)  APK For Android
 ===============================================================================
 
 Additional Information

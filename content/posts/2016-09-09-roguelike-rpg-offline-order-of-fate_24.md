@@ -1,14 +1,14 @@
 ---
-title: 'Roguelike RPG Offline Order of Fate 0.0.88 MOD (Free Shopping + Immortality)Â  APK For Android'
+title: 'Roguelike RPG Offline Order of Fate 0.0.88 MOD (Free Shopping + Immortality)  APK For Android'
 date: 2020-01-24T18:00:00+01:00
 draft: false
 ---
 
-![Roguelike RPG Offline Order of Fate 0.0.88 MOD (Free Shopping + Immortality)Â  APK For Android](https://i2.wp.com/apkhome.net/wp-content/uploads/2020/01/Roguelike-RPG-Offline-Order-of-Fate-0.0.88-MOD-Free-Shopping-Immortality.png "Roguelike RPG Offline Order of Fate 0.0.88 MOD (Free Shopping + Immortality)Â  APK For Android")
+![Roguelike RPG Offline Order of Fate 0.0.88 MOD (Free Shopping + Immortality)  APK For Android](https://i2.wp.com/apkhome.net/wp-content/uploads/2020/01/Roguelike-RPG-Offline-Order-of-Fate-0.0.88-MOD-Free-Shopping-Immortality.png "Roguelike RPG Offline Order of Fate 0.0.88 MOD (Free Shopping + Immortality)  APK For Android")
 
   
 
-Roguelike RPG Offline Order of Fate 0.0.88 MOD (Free Shopping + Immortality)Â  APK For Android
+Roguelike RPG Offline Order of Fate 0.0.88 MOD (Free Shopping + Immortality)  APK For Android
 
 Order of Destiny welcomes you to its world! In this adventure roguelike RPG, inspired by classic RPG games, you will venture deep into the Dungeon to explore its mysteries, fight the hordes of enemies there and collect the tons of loot that await you. Its turn\*based system will allow you to plan each of your movement, and its mechanics and special interactions will add a twist to its tactical aspect.
 
@@ -22,11 +22,11 @@ Order of Destiny welcomes you to its world! In this adventure roguelike RPG, ins
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE :Free Shopping + Immortality**
 
-Download Roguelike RPG Offline Order of Fate 0.0.88 MOD (Free Shopping + Immortality)Â  APK For Android
+Download Roguelike RPG Offline Order of Fate 0.0.88 MOD (Free Shopping + Immortality)  APK For Android
 =======================================================================================================
 
 Additional Information

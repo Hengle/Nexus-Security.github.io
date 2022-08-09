@@ -14,7 +14,7 @@ The app combines very accurate weather forecasts for your location with a map sh
 **Supported Android**  
 {4.4 and UP}  
 **Supported Android Version**:-  
-KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 Download Ventusky Weather Maps Premium 10.0 APK For Android
 ===========================================================

@@ -21,12 +21,12 @@ For More Info
 **Supported Android**  
 {4.1 and UP}  
 Supported Android Version:-  
-Jelly Bean (4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) or UP
+Jelly Bean (4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) or UP
 
 Download MMX Hill Dash 1.0.5761 Hack MOD Unlimited Money APK For Android
 ========================================================================
 
-**Â **
+** **
 
 Additional Information
 ----------------------

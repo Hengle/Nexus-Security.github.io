@@ -10,26 +10,26 @@ draft: false
 
 Angry Birds Transformers 1.48.1 MOD + DATA (Unlimited Money + Unlock) APK For Android
 
-Angry Birds and Transformers collide in this action\*packed, 3D shoot âem up adventure! The EggSpark has transformed the eggs into crazed robots who are destroying Piggy Island, but who can stop them?! Autobirds, ROLL OUT!
+Angry Birds and Transformers collide in this action\*packed, 3D shoot em up adventure! The EggSpark has transformed the eggs into crazed robots who are destroying Piggy Island, but who can stop them?! Autobirds, ROLL OUT!
 
-Have you ever seen an alien robot Angry Bird? Enter the AUTOBIRDS! This brave band of heroes features Red as Optimus Prime, Chuck as Bumblebee andâ¦ well youâll meet the rest soon. Theyâve got lasers and they turn into cars. Plus they have arms and legs â" thatâs a first!
+Have you ever seen an alien robot Angry Bird? Enter the AUTOBIRDS! This brave band of heroes features Red as Optimus Prime, Chuck as Bumblebee and¦ well youll meet the rest soon. Theyve got lasers and they turn into cars. Plus they have arms and legs " thats a first!
 
 \* COLLECT! Unlock a roster of heroes (and villains) with unique attacks and abilities!
 
-\* DESTROY! Leave the slingshot at home â" this time you have some SERIOUS firepower!
+\* DESTROY! Leave the slingshot at home " this time you have some SERIOUS firepower!
 
-\* VEHICLES! Oh, yes! Car, truck, tank or plane â" transform to dodge falling hazards!
+\* VEHICLES! Oh, yes! Car, truck, tank or plane " transform to dodge falling hazards!
 
 \* UPGRADES! Get stronger weapons and new abilities for every Transformer!
 
-\* TAG TEAM! Borrow a friendâs character to unleash a devastating two\*bot assault!
+\* TAG TEAM! Borrow a friends character to unleash a devastating two\*bot assault!
 
-\* TELEPODSâ¢! Scan âem to unlock, revive or boost your bots!
+\* TELEPODS¢! Scan em to unlock, revive or boost your bots!
 
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: Unlimited Money + Unlock**
 

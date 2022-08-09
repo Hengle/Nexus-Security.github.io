@@ -13,7 +13,7 @@ Cradle of Empires Match 3 Game 6.1.5 Mod (Free Shopping) APK For Android
 Cradle of Empires is an exciting adventure - but cool, calm and relaxing - suitable for families. It takes you on a breathtaking odyssey that challenges your skills in association, construction and craftsmanship. With the help of Nimiru and the Egyptian settlers, you can break Amrun's curse and restore the former civilization to its former glory. Step up and become the secret weapon in the triumph of good over evil!
 
 **Features:**  
-\* Unique gameplay mix: you play matches, build a big city, even grow food and go on an adventure all in oneâ¦ It's great, isn't it?  
+\* Unique gameplay mix: you play matches, build a big city, even grow food and go on an adventure all in one¦ It's great, isn't it?  
 \* Large adventure: you will be immersed in this engaging adventurous story with unexpected twists, captivating quests and memorable characters.  
 \* Ancient cities and civilizations: you collect resources by playing match-3 levels, which help you rebuild cities that evil had destroyed.  
 \* Different game modes: you play 6 different match-3 modes, a variety you won't find anywhere else.  
@@ -22,7 +22,7 @@ Cradle of Empires is an exciting adventure - but cool, calm and relaxing - suita
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE:Free Shopping**
 

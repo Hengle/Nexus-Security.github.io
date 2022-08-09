@@ -19,7 +19,7 @@ Take on terrifying bosses with our special events. An incredible booty is waitin
 **Supported Android**  
 {4.0.3 and UP}  
 Supported Android Version:-  
-Ice Cream Sandwich (4.0.3â"4.0.4)- Jelly Bean (4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) or UP
+Ice Cream Sandwich (4.0.3"4.0.4)- Jelly Bean (4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) or UP
 
 Download Valiant Force 1.21.0 Hack MOD APK For Android
 ======================================================

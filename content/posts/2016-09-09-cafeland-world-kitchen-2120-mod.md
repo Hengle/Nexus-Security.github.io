@@ -1,14 +1,14 @@
 ---
-title: 'Cafeland World Kitchen 2.1.20 MOD (Unlimited Money)Â  APK For Android'
+title: 'Cafeland World Kitchen 2.1.20 MOD (Unlimited Money)  APK For Android'
 date: 2020-01-10T13:28:00+01:00
 draft: false
 ---
 
-![Cafeland World Kitchen 2.1.20 MOD (Unlimited Money)Â  APK For Android](https://i2.wp.com/apkhome.net/wp-content/uploads/2020/01/Cafeland-World-Kitchen-2.1.20-MOD-Unlimited-Money.png "Cafeland World Kitchen 2.1.20 MOD (Unlimited Money)Â  APK For Android")
+![Cafeland World Kitchen 2.1.20 MOD (Unlimited Money)  APK For Android](https://i2.wp.com/apkhome.net/wp-content/uploads/2020/01/Cafeland-World-Kitchen-2.1.20-MOD-Unlimited-Money.png "Cafeland World Kitchen 2.1.20 MOD (Unlimited Money)  APK For Android")
 
   
 
-Cafeland World Kitchen 2.1.20 MOD (Unlimited Money)Â  APK For Android
+Cafeland World Kitchen 2.1.20 MOD (Unlimited Money)  APK For Android
 
 Start your culinary stay now at Cafeland! Perfect your kitchen, choose delicious dishes from the menu and serve delicacies. Lay the groundwork for a great, successful company with worldwide renown, and get carried away by the cooking fever! From a small bistro to a famous Cafe World!
 
@@ -28,14 +28,14 @@ Design and decorate the place of your dreams with this coffee game! Cook tasty f
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: Unlimited Money**
 
-Download Cafeland World Kitchen 2.1.20 MOD (Unlimited Money)Â  APK For Android
+Download Cafeland World Kitchen 2.1.20 MOD (Unlimited Money)  APK For Android
 ==============================================================================
 
-Â 
+ 
 
 Additional Information
 ----------------------

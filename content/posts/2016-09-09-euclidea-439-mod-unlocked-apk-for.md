@@ -19,20 +19,20 @@ Easily Drag, Zoom & Pan
 
 New levels are unlocked as you solve the previous ones. You can complete the whole game only if you earn all the stars. But you can buy an IAP that removes this restriction.
 
-âEuclidea has been shown to help with imagination, intuition, and logic, all wonderful skills to develop.â â" appPicker
+Euclidea has been shown to help with imagination, intuition, and logic, all wonderful skills to develop. " appPicker
 
-âEuclidea is an absolute joy to playâ¦itâs a game that every math student should have and, in an ideal world, every adult should like.â â" Non-Trivial Games
+Euclidea is an absolute joy to play¦its a game that every math student should have and, in an ideal world, every adult should like. " Non-Trivial Games
 
 \*About Euclidea  
-Euclidea is a brilliantly original way to learn about, explore and have fun with Euclidian Constructions! Your task is to solve interesting challenges by building geometric constructions with a straightedge and compass. If you design the most elegantly simple solutions in the least number of moves, youâll earn the highest scores. Solutions are scored in lines (L) and elementary Euclidean constructions (E).
+Euclidea is a brilliantly original way to learn about, explore and have fun with Euclidian Constructions! Your task is to solve interesting challenges by building geometric constructions with a straightedge and compass. If you design the most elegantly simple solutions in the least number of moves, youll earn the highest scores. Solutions are scored in lines (L) and elementary Euclidean constructions (E).
 
 \*Start Simple and Get Smarter!  
-Donât worry if you arenât a math wizard. Euclidea starts out with simple challenges that guide you through the basics. Once you master the fundamentals, youâll move on to tougher, more mind-bending challenges such as inner/outer tangents, regular polygons, and more. There are 120 unique challenges in total, which are organized in packs for simpler navigation.
+Dont worry if you arent a math wizard. Euclidea starts out with simple challenges that guide you through the basics. Once you master the fundamentals, youll move on to tougher, more mind-bending challenges such as inner/outer tangents, regular polygons, and more. There are 120 unique challenges in total, which are organized in packs for simpler navigation.
 
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: Unlocked**
 

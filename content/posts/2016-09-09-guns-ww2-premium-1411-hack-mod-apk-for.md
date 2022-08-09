@@ -21,7 +21,7 @@ Grab your bazookas and grenades to play the giant successor to Guns'n'Glory, the
 **Supported Android**  
 {4.0 and UP}  
 Supported Android Version:-  
-Ice Cream Sandwich (4.0â"4.0.4)- Jelly Bean (4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) or UP
+Ice Cream Sandwich (4.0"4.0.4)- Jelly Bean (4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) or UP
 
 Download Guns'n'Glory WW2 Premium 1.4.11 Hack MOD APK For Android
 =================================================================

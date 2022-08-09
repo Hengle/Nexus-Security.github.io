@@ -10,7 +10,7 @@ draft: false
 
 Ice Scream Episode 2 Horror Neighborhood 1.0.2 MOD (Unlocked + menu mode) APK For Android
 
-The ice cream vendor came to the neighborhood! He kidnapped your friend and neighbor Lis and you witnessed itâ¦
+The ice cream vendor came to the neighborhood! He kidnapped your friend and neighbor Lis and you witnessed it¦
 
 He frozen your best friend using a kind of superpower and took him somewhere with his van. Your friend has disappeared, and worse ... What if there are more children like him?
 
@@ -21,7 +21,7 @@ Your mission will hide inside his van and solve the mystery of this bad villain.
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: Unlocked + menu mode  
 **

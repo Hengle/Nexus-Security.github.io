@@ -12,7 +12,7 @@ Restaurant Renovation 1.5.1 MOD (Many Stars) APK For Android
 
 Welcome to our restaurant! Help us revive this best restaurant of all time!
 
-Jessieâs uncle Bobby is one of the best master chefs in the world. Due to mismanagement, the restaurant is in decline. Can you and Jessie help Bobby save the restaurant and attract more customers?
+Jessies uncle Bobby is one of the best master chefs in the world. Due to mismanagement, the restaurant is in decline. Can you and Jessie help Bobby save the restaurant and attract more customers?
 
 **Features:**  
 \* A completely free game.  
@@ -24,7 +24,7 @@ Jessieâs uncle Bobby is one of the best master chefs in the world. Due to m
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: Many Stars**
 

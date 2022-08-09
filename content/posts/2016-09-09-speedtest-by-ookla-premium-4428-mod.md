@@ -10,7 +10,7 @@ draft: false
 
 Speedtest by Ookla Premium 4.4.28 Mod Lite APK For Android
 
-Use SpeedtestÂ® by OoklaÂ® for a one\*click Internet connection and test connection speed \* accurate everywhere with our global server network. Millions of people have made Speedtest the # 1 tool for testing Internet speeds, and it's reliable every day by industry professionals:  
+Use Speedtest® by Ookla® for a one\*click Internet connection and test connection speed \* accurate everywhere with our global server network. Millions of people have made Speedtest the # 1 tool for testing Internet speeds, and it's reliable every day by industry professionals:  
 **features:**  
 \* Discover your download, download and ping  
 \* Real\*time graphs show consistency of connections  
@@ -22,7 +22,7 @@ Use SpeedtestÂ® by OoklaÂ® for a one\*click Internet connection and test con
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 Download Speedtest by Ookla Premium 4.4.28 Mod Lite APK For Android
 ===================================================================

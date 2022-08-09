@@ -15,7 +15,7 @@ There are 5 different backgrounds to choose from and 15 different gradient accen
 **Supported Android**  
 {7.0 and UP}  
 **Supported Android Version**:-  
-Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 Download FAB 5.4 Patched APK For Android
 ========================================
@@ -23,7 +23,7 @@ Download FAB 5.4 Patched APK For Android
 Additional Information
 ----------------------
 
-**Developer :** llevo3 Ã¢ÂÂ design
+**Developer :** llevo3 Ã¢ design
 
 **Version :** 5.4
 

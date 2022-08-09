@@ -1,11 +1,11 @@
 ---
-title: 'Hướng Dẫn Kiếm 100$ MIỄN PHÍ Với Sàn CoinsBit 2019'
+title: 'Hướng D̃n Kiếm 100$ MIỄN PHÍ Với Sàn CoinsBit 2019'
 date: 2019-12-05T13:46:00+01:00
 draft: false
 ---
 
   
-Hướng Dẫn Kiếm 100$ MIỄN PHÍ Với Sàn CoinsBit 2019
+Hướng D̃n Kiếm 100$ MIỄN PHÍ Với Sàn CoinsBit 2019
 ============================================================
 
   
@@ -22,7 +22,7 @@ Nhận ngay 100$ vào Balance khi đăng ký và xác minh sàn Coinsbit
 
 * * *
 
-Sàn [Coinsbit](https://www.coingecko.com/vi/san_giao_dich/coinsbit?utm_content=coinsbit&utm_medium=search_exchange&utm_source=coingecko) là một sàn giao dịch Crypto lớn nhất khu vực Đông Âu.
+Sàn [Coinsbit](https://www.coingecko.com/vi/san_giao_dich/coinsbit?utm_content=coinsbit&utm_medium=search_exchange&utm_source=coingecko) là một sàn giao dịch Crypto lớn nhất khu vực Đông u.
 
 [![](https://1.bp.blogspot.com/-pPKbDP50cEE/Xej5n0CqiII/AAAAAAAAKOg/JCQYufz2nA4TALifpBE7ty1k5MHF0OeOgCLcBGAsYHQ/s1600/831951518-04fe8a2a97806e685bdd854c3e9201c2892fa0579e0f86e0983c61ab2ff5fbed%252Cjpg.webp)](https://1.bp.blogspot.com/-pPKbDP50cEE/Xej5n0CqiII/AAAAAAAAKOg/JCQYufz2nA4TALifpBE7ty1k5MHF0OeOgCLcBGAsYHQ/s1600/831951518-04fe8a2a97806e685bdd854c3e9201c2892fa0579e0f86e0983c61ab2ff5fbed%252Cjpg.webp)
 
@@ -100,7 +100,7 @@ Sau khi đăng nhập xong, bạn vào [Verification](https://coinsbit.io/setti
 
 [![](https://1.bp.blogspot.com/-p-ocLsYPCgE/Xej6epZPRuI/AAAAAAAAKPQ/tlr4cA1i3fgVXBDLqhWXoxwoZUGmDPOmACEwYBhgL/s1600/1234.jpg)](https://1.bp.blogspot.com/-p-ocLsYPCgE/Xej6epZPRuI/AAAAAAAAKPQ/tlr4cA1i3fgVXBDLqhWXoxwoZUGmDPOmACEwYBhgL/s1600/1234.jpg)
 
-Phần mã bưu chính bạn có thể tham khảo [tại đây](https://povietnam.com/zip-code-postal-code-viet-nam/).
+Phần mã bưu chính bạn có thể tham khảo [tại đy](https://povietnam.com/zip-code-postal-code-viet-nam/).
 
 Điền đầ đủ thông tin xong bấm Submit.
 
@@ -187,7 +187,7 @@ Các bạn lấy link ở phần: [Referral CNB](https://coinsbit.io/settings/r
 
   
 
-Lấy liên kết đó gởi cho bạn bè, người thân cùng đăng ký và nhận phần thưởng nhé! **Cảm ơn các bạn!**
+Lấy liên kết đó gởi cho bạn bè, người thn cùng đăng ký và nhận phần thưởng nhé! **Cảm ơn các bạn!**
 
 Liên kết đăng ký tài khoản: [Coinsbit](https://coinsbit.io/referral/ee09234c-e2ae-4c9e-876f-ae23cf44425b)
 

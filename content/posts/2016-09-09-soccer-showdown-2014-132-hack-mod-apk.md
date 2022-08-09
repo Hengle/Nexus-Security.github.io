@@ -10,14 +10,14 @@ draft: false
 
 Soccer Showdown 2014 1.3.2 Hack MOD APK Unlimited Money APK For Android
 
-Perfectly control each shot with PhysKick â¢, the revolutionary Soccer Showdown engine. A football game that is out of the ordinary! Soccer Showdown relies entirely on its sensitivity: your finger IS your foot.  
+Perfectly control each shot with PhysKick ¢, the revolutionary Soccer Showdown engine. A football game that is out of the ordinary! Soccer Showdown relies entirely on its sensitivity: your finger IS your foot.  
 Choose your favorite team and challenge your friends, your enemies or the world and earn rewards in international online tournaments. Progress, earn coins and unlock valuable equipment to become a superstar.  
 And find out why Naquatic's Apps like "Shooting Showdown" and "Guncrafter" were at the top of the charts and were highlighted by everyone from Apple to Google, IGN, AppAdvice and Toucharcade.
 
 **Supported Android**  
 {4.0 and UP}  
 Supported Android Version:-  
-Ice Cream Sandwich (4.0â"4.0.4) - Jelly Bean (4.1â"4.3.1) - KitKat (4.4â"4.4.4) - Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1)
+Ice Cream Sandwich (4.0"4.0.4) - Jelly Bean (4.1"4.3.1) - KitKat (4.4"4.4.4) - Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1)
 
 Download Soccer Showdown 2014 1.3.2 Hack MOD APK Unlimited Money APK For Android
 ================================================================================

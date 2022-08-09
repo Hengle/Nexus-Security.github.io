@@ -1,14 +1,14 @@
 ---
-title: 'Adventure Escape Mysteries 8.01 MOD (Unlimited Star + Key)Â  APK For Android'
+title: 'Adventure Escape Mysteries 8.01 MOD (Unlimited Star + Key)  APK For Android'
 date: 2020-01-20T06:56:00+01:00
 draft: false
 ---
 
-![Adventure Escape Mysteries 8.01 MOD (Unlimited Star + Key)Â  APK For Android](https://i0.wp.com/apkhome.net/wp-content/uploads/2020/01/Adventure-Escape-Mysteries-8.01-MOD-Unlimited-Star-Key.png "Adventure Escape Mysteries 8.01 MOD (Unlimited Star + Key)Â  APK For Android")
+![Adventure Escape Mysteries 8.01 MOD (Unlimited Star + Key)  APK For Android](https://i0.wp.com/apkhome.net/wp-content/uploads/2020/01/Adventure-Escape-Mysteries-8.01-MOD-Unlimited-Star-Key.png "Adventure Escape Mysteries 8.01 MOD (Unlimited Star + Key)  APK For Android")
 
   
 
-Adventure Escape Mysteries 8.01 MOD (Unlimited Star + Key)Â  APK For Android
+Adventure Escape Mysteries 8.01 MOD (Unlimited Star + Key)  APK For Android
 
 Explore enigmatic clues, solve a mystery, and solve puzzles in beautifully illustrated adventures! Catch a criminal genius in Trapmaker or save a fantasy kingdom in Cursed Crown!
 
@@ -26,11 +26,11 @@ The Adventure Escape game series blends the point and click style of games like 
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: Unlimited Star + Key**
 
-Download Adventure Escape Mysteries 8.01 MOD (Unlimited Star + Key)Â  APK For Android
+Download Adventure Escape Mysteries 8.01 MOD (Unlimited Star + Key)  APK For Android
 =====================================================================================
 
 Additional Information

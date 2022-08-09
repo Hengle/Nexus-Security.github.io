@@ -1,14 +1,14 @@
 ---
-title: 'Zero City Zombie games for Survival in a shelter 1.7.2 APK + MOD (Improve defense + damage)Â  APK For Android'
+title: 'Zero City Zombie games for Survival in a shelter 1.7.2 APK + MOD (Improve defense + damage)  APK For Android'
 date: 2020-01-26T20:56:00+01:00
 draft: false
 ---
 
-![Zero City Zombie games for Survival in a shelter 1.7.2 APK + MOD (Improve defense + damage)Â  APK For Android](https://i1.wp.com/apkhome.net/wp-content/uploads/2020/01/Zero-City-Zombie-games-for-Survival-in-a-shelter-1.7.2-APK-MOD-Improve-defense-damage.png "Zero City Zombie games for Survival in a shelter 1.7.2 APK + MOD (Improve defense + damage)Â  APK For Android")
+![Zero City Zombie games for Survival in a shelter 1.7.2 APK + MOD (Improve defense + damage)  APK For Android](https://i1.wp.com/apkhome.net/wp-content/uploads/2020/01/Zero-City-Zombie-games-for-Survival-in-a-shelter-1.7.2-APK-MOD-Improve-defense-damage.png "Zero City Zombie games for Survival in a shelter 1.7.2 APK + MOD (Improve defense + damage)  APK For Android")
 
   
 
-Zero City Zombie games for Survival in a shelter 1.7.2 APK + MOD (Improve defense + damage)Â  APK For Android
+Zero City Zombie games for Survival in a shelter 1.7.2 APK + MOD (Improve defense + damage)  APK For Android
 
 Take control of one of the last shelters in the new world! Gather the survivors and lead them, train them and assign tasks to them. There is always work for everyone! Build and strengthen your base and make it impregnable!
 
@@ -32,11 +32,11 @@ We are not the only survivors, but only the strongest will survive the apocalyps
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: Improve defense + damage**
 
-Download Zero City Zombie games for Survival in a shelter 1.7.2 APK + MOD (Improve defense + damage)Â  APK For Android
+Download Zero City Zombie games for Survival in a shelter 1.7.2 APK + MOD (Improve defense + damage)  APK For Android
 ======================================================================================================================
 
 **Original version**

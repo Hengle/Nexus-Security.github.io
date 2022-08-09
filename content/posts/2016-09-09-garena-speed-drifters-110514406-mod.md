@@ -10,20 +10,20 @@ draft: false
 
 Garena Speed Drifters 1.10.5.14406 MOD (Teleport forward) APK For Android
 
-Speed ââDrifters: Drifting to the max!
+Speed Drifters: Drifting to the max!
 
-Drift to victory in three minutes! Adjust your seat belt and find your friends in several game modes. Compete anywhere, anytime and against anyone! Come and try the Speed ââDrifters.
+Drift to victory in three minutes! Adjust your seat belt and find your friends in several game modes. Compete anywhere, anytime and against anyone! Come and try the Speed Drifters.
 
 Object Mode - Use a wide range of objects to sabotage your opponents and reach the goal! Available alone and as a team, so call everyone to group and protect themselves with the objects and have the best possible experience in a race.
 
-Speed ââMode - Show that you are the best driver on the track! Drift with precision and use your Power Boosters wisely to be the first to cross the finish line. A classic fashion that everyone can enjoy.
+Speed Mode - Show that you are the best driver on the track! Drift with precision and use your Power Boosters wisely to be the first to cross the finish line. A classic fashion that everyone can enjoy.
 
 Classification mode - Are you the next legendary god of racing? Compete against pilots of your level and move up the rankings. Bring every detail of your skills to be the best internationally.
 
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: Teleport forward**
 

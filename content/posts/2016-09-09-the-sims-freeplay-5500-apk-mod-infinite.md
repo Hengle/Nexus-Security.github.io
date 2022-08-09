@@ -12,18 +12,18 @@ The Sims FreePlay 5.50.0 APK + MOD (Infinite Lifestyle + Social Points + Simoleo
 
 Celebrate the holidays with a gorgeous farmhouse, an adorable pet pug, and more!
 
-From the creators of The Simsâ¢ series of best-selling simulation games comes a complete Sims experience on mobile! Whatâs your story? Create it with your Sims in real-time, customize their wardrobes and homes, and help them live out their dreams. Complete goals to earn Simoleons, expanding your Sim Town and picking up rewards along the way. Keep your Sims happy and watch them thrive as you help them live a fun and fulfilled life!
+From the creators of The Sims¢ series of best-selling simulation games comes a complete Sims experience on mobile! Whats your story? Create it with your Sims in real-time, customize their wardrobes and homes, and help them live out their dreams. Complete goals to earn Simoleons, expanding your Sim Town and picking up rewards along the way. Keep your Sims happy and watch them thrive as you help them live a fun and fulfilled life!
 
 SIM-ULATING POSSIBILITIES  
-From head to toe â" and floor to ceiling â" customize every aspect of your Simsâ lives! Keep up to 34 Sims looking stylish, and design their dream homes complete with swimming pools and multiple floors. As you get more Sims and they start a family, expand your Sim Town with a pet store, car dealership, shopping mall, and even a beach! Achieve goals for Lifestyle Points, then spend them on trendy items. Visit your real friendsâ Sim Towns, where you can form new relationships and compare your friendsâ interior design skills against yours. Endless possibilities. Endless mobile fun!
+From head to toe " and floor to ceiling " customize every aspect of your Sims lives! Keep up to 34 Sims looking stylish, and design their dream homes complete with swimming pools and multiple floors. As you get more Sims and they start a family, expand your Sim Town with a pet store, car dealership, shopping mall, and even a beach! Achieve goals for Lifestyle Points, then spend them on trendy items. Visit your real friends Sim Towns, where you can form new relationships and compare your friends interior design skills against yours. Endless possibilities. Endless mobile fun!
 
 STAY CONNECTED  
-Life is better together. Start relationships, fall in love, get married, and have a family. Make lifelong friends and care for pets. Throw pool parties and grill outdoors or snuggle up by the fireplace for movie night. In the mood for some trouble? Thereâs plenty of drama to be had when Sims donât get along. Act silly with teens, be rude to family members, or even say no to a marriage proposal! From babies to seniors, your perfect Sims story can happen at every stage of your life simulation. Love and friendships? Drama and breakups? The choice is always yours.
+Life is better together. Start relationships, fall in love, get married, and have a family. Make lifelong friends and care for pets. Throw pool parties and grill outdoors or snuggle up by the fireplace for movie night. In the mood for some trouble? Theres plenty of drama to be had when Sims dont get along. Act silly with teens, be rude to family members, or even say no to a marriage proposal! From babies to seniors, your perfect Sims story can happen at every stage of your life simulation. Love and friendships? Drama and breakups? The choice is always yours.
 
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: Infinite Lifestyle + Social Points + Simoleons**
 

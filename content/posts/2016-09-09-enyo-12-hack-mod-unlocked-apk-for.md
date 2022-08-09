@@ -12,7 +12,7 @@ ENYO 1.2 Hack MOD Unlocked APK For Android
 
 ENYO is a tactical roguelike on the hook and the fight shield.  
 Grab your hook and shield and descend as Enyo, the Greek goddess of war, into a constantly evolving labyrinth to retrieve 3 legendary items.  
-ENYO's gameplay is based on the idea of ââindirect combat. Enemies can not be defeated by pushing or pulling them into burning lava pits or deadly walled spikes.  
+ENYO's gameplay is based on the idea of indirect combat. Enemies can not be defeated by pushing or pulling them into burning lava pits or deadly walled spikes.  
 While remaining accessible by the limited number of actions a player can take, the core of ENYO are very tactical turn-based fights.
 
 For More Info
@@ -20,7 +20,7 @@ For More Info
 **Supported Android**  
 {4.0 and UP}  
 Supported Android Version:-  
-Ice Cream Sandwich (4.0â"4.0.4)- Jelly Bean (4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) or UP
+Ice Cream Sandwich (4.0"4.0.4)- Jelly Bean (4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) or UP
 
 Download ENYO 1.2 Hack MOD Unlocked APK For Android
 ===================================================

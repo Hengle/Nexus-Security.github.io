@@ -17,8 +17,8 @@ Fight in real-time 5v5 multiplayer tactical mode \* playable in 4-minute coffee 
 This Early Access version contains 11 heroes and 4 cards. We are constantly updating the game and we are in constant dialogue with our players \* we create a game for you, not "just" for us.
 
 **Features:**  
-\* Choose from three different classes \* Sniper, Rifleman and Scout (more to comeâ¦)  
-\* Master 11 Heroes and their distinct play style (more to comeâ¦)  
+\* Choose from three different classes \* Sniper, Rifleman and Scout (more to come¦)  
+\* Master 11 Heroes and their distinct play style (more to come¦)  
 \* Explore five different maps \* inspired by real battlefields  
 \* Shoot down the enemy or capture the flag for victory  
 \* Go up in the daily / weekly / monthly rankings  
@@ -28,7 +28,7 @@ This Early Access version contains 11 heroes and 4 cards. We are constantly upda
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: Radar  
 **

@@ -1,14 +1,14 @@
 ---
-title: 'HERETIC GODS 1.10.12 MOD (Free Shopping + VIP)Â  APK For Android'
+title: 'HERETIC GODS 1.10.12 MOD (Free Shopping + VIP)  APK For Android'
 date: 2019-11-29T19:00:00+01:00
 draft: false
 ---
 
-![HERETIC GODS 1.10.12 MOD (Free Shopping + VIP)Â  APK For Android](https://i2.wp.com/apkhome.net/wp-content/uploads/2019/11/HERETIC-GODS.png "HERETIC GODS 1.10.12 MOD (Free Shopping + VIP)Â  APK For Android")
+![HERETIC GODS 1.10.12 MOD (Free Shopping + VIP)  APK For Android](https://i2.wp.com/apkhome.net/wp-content/uploads/2019/11/HERETIC-GODS.png "HERETIC GODS 1.10.12 MOD (Free Shopping + VIP)  APK For Android")
 
   
 
-HERETIC GODS 1.10.12 MOD (Free Shopping + VIP)Â  APK For Android
+HERETIC GODS 1.10.12 MOD (Free Shopping + VIP)  APK For Android
 
 Are you looking for an "Action Game Playing Role"?  
 Well, the Heretic Gods is simply the best game for Android if you are ravenous for Epic Loot, mastering skills and clogging through hordes of monsters in dark dungeons.
@@ -20,11 +20,11 @@ The Heretic God Control System is intuitive and is very well suited for tactile 
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: Free Shopping + VIP**
 
-Download HERETIC GODS 1.10.12 MOD (Free Shopping + VIP)Â  APK For Android
+Download HERETIC GODS 1.10.12 MOD (Free Shopping + VIP)  APK For Android
 =========================================================================
 
 Additional Information

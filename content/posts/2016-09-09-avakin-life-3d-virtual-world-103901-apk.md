@@ -14,7 +14,7 @@ Meet people, explore and take on challenges in the 3D living world of Avakin Lif
 
 Meet old friends and make new ones in these beautiful 3D environments. Explore this ever-growing and regularly updated world as you wander at will in each lush place. Personalize and decorate your apartment to express your personality. Make it a private meeting place for you and your friends, or invite the world to visit it to assess your interior design skills. You will have to work hard if you want to be at the top of the ranking. Only the best apartments will receive the highest ratings.
 
-Regularly updated with new furniture, new environments and animations to revive your Avakinâ¦ Avakin Life!
+Regularly updated with new furniture, new environments and animations to revive your Avakin¦ Avakin Life!
 
 **Features:**  
 \* FREE 3D Chat  
@@ -28,7 +28,7 @@ Regularly updated with new furniture, new environments and animations to revive 
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: Unlocked**
 

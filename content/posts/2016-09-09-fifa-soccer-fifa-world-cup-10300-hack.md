@@ -10,14 +10,14 @@ draft: false
 
 FIFA Soccer FIFA World Cup 10.3.00 Hack MOD APK For Android
 
-The FIFA World Cup 2018 â¢ is coming to FIFA Mobile! If you discover FIFA Mobile, create and manage your team with Cristiano Ronaldo featured. Make your players superstars, challenge your opponents and discover new content every day. Whether you are a confirmed player, a beginner or already ready for the FIFA World Cup â¢, FIFA Mobile is sure to please you.  
+The FIFA World Cup 2018 ¢ is coming to FIFA Mobile! If you discover FIFA Mobile, create and manage your team with Cristiano Ronaldo featured. Make your players superstars, challenge your opponents and discover new content every day. Whether you are a confirmed player, a beginner or already ready for the FIFA World Cup ¢, FIFA Mobile is sure to please you.  
 Build the most competitive team by choosing 11 players from over 550 real teams, including past and current stars, and train them to more than 100 GEN. Add wealth to your squad, manage your players on the move and quickly set tactics before each game.  
 This immersive feature, updated weekly, allows you to create different numbers to earn great rewards for your dream team. Go further and align these specific teams in multi-attack competitions during the weekend to win even more exceptional awards.
 
 **Supported Android**  
 {4.1 and UP}  
 Supported Android Version:-  
-Jelly Bean (4.1â"4.3.1) - KitKat (4.4â"4.4.4) - Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1)
+Jelly Bean (4.1"4.3.1) - KitKat (4.4"4.4.4) - Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1)
 
 Download FIFA Soccer FIFA World Cup 10.3.00 Hack MOD APK For Android
 ====================================================================

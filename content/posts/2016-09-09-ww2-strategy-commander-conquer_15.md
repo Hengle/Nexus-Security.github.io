@@ -17,7 +17,7 @@ World War II tactical simulation game. The war is about to begin. Lead your army
 Terrain and generals, weapons, troops with any combination, so that any strategy becomes possible!
 
 \* Simulation & Strategy  
-Itâs a perfect fusion of the sandbox simulator, turn-based strategy and military tactics. Omnidirectional display of World War II themes. Restore the real world conflict from 1939 to 1945 and reproduce the environment of the Second World War for yourself.
+Its a perfect fusion of the sandbox simulator, turn-based strategy and military tactics. Omnidirectional display of World War II themes. Restore the real world conflict from 1939 to 1945 and reproduce the environment of the Second World War for yourself.
 
 \* Build a military layout  
 Powerful firepower provides: Cavalry, infantry, navy, armored artillery, tank, vehicles, submarine, battleship, heavy cruiser, destroyer, etc.  
@@ -27,7 +27,7 @@ The turn-based strategy game requires more patience and tactics. You must organi
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: Unlimited Money**
 

@@ -12,7 +12,7 @@ Heist Thief Robbery Sneak Simulator 7.6 MOD + DATA (A lot of gold coins + weight
 
 Flying is fun. If you like Thief & Stealth Games, download Stealth Simulator and start stealing adventures. Rob the Houses with lots of rare items that can be sold in this theft and crime game.
 
-Fly in the house: Sneak into rich mansions, infiltrate the best kept mansions and prowl in all dark corners unnoticed and not sanctioned. Let's start the actions of a real thief! Rob most of the town's secure homes. Use your tools to unlock doors and windows! Steal the most expensive items (diamonds, gold, silver, laptop, phones, etc.) and sell them to make more money. Do not expose yourself to Bulgarian alarms and CCTV cameras. So get ready for the action thief and thrillerâs journey. Do you want to play your next game on Xbox or VR? Want to watch the next world cup on a large LCD screen? Do you want a diamond ring for your girlfriend? Real thieves don't care about the end. They show courage and fulfill their wishes.
+Fly in the house: Sneak into rich mansions, infiltrate the best kept mansions and prowl in all dark corners unnoticed and not sanctioned. Let's start the actions of a real thief! Rob most of the town's secure homes. Use your tools to unlock doors and windows! Steal the most expensive items (diamonds, gold, silver, laptop, phones, etc.) and sell them to make more money. Do not expose yourself to Bulgarian alarms and CCTV cameras. So get ready for the action thief and thrillers journey. Do you want to play your next game on Xbox or VR? Want to watch the next world cup on a large LCD screen? Do you want a diamond ring for your girlfriend? Real thieves don't care about the end. They show courage and fulfill their wishes.
 
 **Features:**  
 \* Rob the houses whether your neighbor, a mansion or a rare house in town.  
@@ -24,7 +24,7 @@ Fly in the house: Sneak into rich mansions, infiltrate the best kept mansions an
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: A lot of gold coins + weight**
 

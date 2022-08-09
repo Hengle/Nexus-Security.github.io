@@ -10,21 +10,21 @@ draft: false
 
 Drag Battle 3.25.12 MOD (Unlimited Money) APK For Android
 
-A real racing experience awaits you in Drag Battle: Car Race Game 4 Real Racers. It is a high quality racing game that stands out from other racing games with great graphics and gameplay. Not only can you drive âinside viewâ, but also take advantage of creativity like building new parts from your own projects, applying them to cars and winning the âRACEâ.
+A real racing experience awaits you in Drag Battle: Car Race Game 4 Real Racers. It is a high quality racing game that stands out from other racing games with great graphics and gameplay. Not only can you drive inside view, but also take advantage of creativity like building new parts from your own projects, applying them to cars and winning the RACE.
 
 **Features:**  
 \* REALISTIC physics of the car on the track  
 \* EXCLUSIVE for the kind of drag race the view of the car: from the back and inside of the car  
 \* Visual improvements to the car, hood, spoiler, bumper, etc.  
 \* RPG element: the ability to pump not only the car, but also the character's skills.  
-\* VARIETY of race types, ranging from classic, for Â¼ mile and one mile, and ending in small group races.  
+\* VARIETY of race types, ranging from classic, for ¼ mile and one mile, and ending in small group races.  
 \* Online multiplatform course  
 \* RACING TEAM: the player can hire his team a variety of professionals who give bonuses to the points of the league, feed, change different characters of the cars, increase the earnings of the race reward.
 
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: Unlimited Money**
 

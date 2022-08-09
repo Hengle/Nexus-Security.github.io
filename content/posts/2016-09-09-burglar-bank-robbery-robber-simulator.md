@@ -1,14 +1,14 @@
 ---
-title: 'Burglar Bank Robbery Robber Simulator 1.3 MOD (Get unlimited currency once)Â  APK For Android'
+title: 'Burglar Bank Robbery Robber Simulator 1.3 MOD (Get unlimited currency once)  APK For Android'
 date: 2019-12-12T18:56:00+01:00
 draft: false
 ---
 
-![Burglar Bank Robbery Robber Simulator 1.3 MOD (Get unlimited currency once)Â  APK For Android](https://i0.wp.com/apkhome.net/wp-content/uploads/2019/12/Burglar-Bank-Robbery-Robber-Simulator.png "Burglar Bank Robbery Robber Simulator 1.3 MOD (Get unlimited currency once)Â  APK For Android")
+![Burglar Bank Robbery Robber Simulator 1.3 MOD (Get unlimited currency once)  APK For Android](https://i0.wp.com/apkhome.net/wp-content/uploads/2019/12/Burglar-Bank-Robbery-Robber-Simulator.png "Burglar Bank Robbery Robber Simulator 1.3 MOD (Get unlimited currency once)  APK For Android")
 
   
 
-Burglar Bank Robbery Robber Simulator 1.3 MOD (Get unlimited currency once)Â  APK For Android
+Burglar Bank Robbery Robber Simulator 1.3 MOD (Get unlimited currency once)  APK For Android
 
 Chase bank online and robbery of a bank as part of this action packed with strategic master plans in 3D for burglary. Stealing a bank game is a treat to play! Feel the thief of big gangster adventure play. Make a perfect flight plan and make money against the law in this flight simulator. Use an arrow gun and a crowbar to move easily around this task. If you are a boss of shooting and fighting and you have the skills to rob a bank, then let the desire to steal come true in this game, buy weapons and tools that will help you rob a bank easily.
 
@@ -24,11 +24,11 @@ Physical Physics and effects.
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: Get unlimited currency once**
 
-Download Burglar Bank Robbery Robber Simulator 1.3 MOD (Get unlimited currency once)Â  APK For Android
+Download Burglar Bank Robbery Robber Simulator 1.3 MOD (Get unlimited currency once)  APK For Android
 ======================================================================================================
 
 Additional Information

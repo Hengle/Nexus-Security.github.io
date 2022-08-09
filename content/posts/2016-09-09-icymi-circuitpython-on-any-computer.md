@@ -270,7 +270,7 @@ CircuitPython-BLEAcceleration is a simple UART acceleration monitor working with
 
 [![Fox eyes](https://cdn-blog.adafruit.com/uploads/2019/10/10119fox.gif)](https://twitter.com/somenice/status/1176617521606062080)
 
-Fun with Monster M4sk LCD eyes. Added custom textures and twitchier eye movement to bring papier mâché coyote to life – [Twitter](https://twitter.com/somenice/status/1176617521606062080).
+Fun with Monster M4sk LCD eyes. Added custom textures and twitchier eye movement to bring papier mché coyote to life – [Twitter](https://twitter.com/somenice/status/1176617521606062080).
 
 [![Feyes](https://cdn-blog.adafruit.com/uploads/2019/10/10119feyes01.jpg)](https://twitter.com/GRNdragon0/status/1176626769597804546)
 

@@ -27,12 +27,12 @@ For More Info
 **Supported Android**  
 {4.1 and UP}  
 Supported Android Version:-  
-Jelly Bean (4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) or UP
+Jelly Bean (4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) or UP
 
 Download Ships of Battle Age of Pirates 1.55 Hack MOD APK + Data APK For Android
 ================================================================================
 
-**Â **
+** **
 
 **OBB**
 

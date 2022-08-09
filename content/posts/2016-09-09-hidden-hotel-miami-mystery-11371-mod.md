@@ -18,12 +18,12 @@ Each survey is more difficult than the last. Tap the doors to open them and find
 
 Use boosters
 
-If you have a problem with a level, use search tools. Boosters help you find hidden objects! Lanterns can show you the location of highlighted objects. The clocks give you extra time. The keys reveal the location of 3 objects. Speed ââcameras allow you to see all objects for a few seconds. Play all search modes
+If you have a problem with a level, use search tools. Boosters help you find hidden objects! Lanterns can show you the location of highlighted objects. The clocks give you extra time. The keys reveal the location of 3 objects. Speed cameras allow you to see all objects for a few seconds. Play all search modes
 
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: Unlimited Money + Stars + Energy**
 

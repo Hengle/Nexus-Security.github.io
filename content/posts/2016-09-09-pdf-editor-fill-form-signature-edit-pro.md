@@ -23,7 +23,7 @@ Quick and easy editing of PDF files or forms using this PDF Editor application. 
 **Supported Android**  
 {7.0 and UP}  
 **Supported Android Version**:-  
-Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 Download PDF Editor Fill Form Signature & Edit Pro 1.0 APK For Android
 ======================================================================

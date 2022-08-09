@@ -21,7 +21,7 @@ Viber is the free, simple, fast and most secure messaging and calling applicatio
 **Supported Android**  
 {4.1 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 Download Viber Messenger Messages Group Chats & Calls 12.1.0.74 APK For Android
 ===============================================================================
@@ -29,7 +29,7 @@ Download Viber Messenger Messages Group Chats & Calls 12.1.0.74 APK For Android
 Additional Information
 ----------------------
 
-**Developer :** Viber Media S.ÃÂ  r.l.
+**Developer :** Viber Media S.Ã  r.l.
 
 **Version :** 12.1.0.74
 

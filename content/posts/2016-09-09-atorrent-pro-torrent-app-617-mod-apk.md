@@ -1,17 +1,17 @@
 ---
-title: 'ÂµTorrent Pro Torrent App 6.1.7 Mod APK For Android'
+title: 'µTorrent Pro Torrent App 6.1.7 Mod APK For Android'
 date: 2020-01-16T12:00:00+01:00
 draft: false
 ---
 
-![ÂµTorrent Pro Torrent App 6.1.7 Mod APK For Android](https://i1.wp.com/apkhome.net/wp-content/uploads/2020/01/µTorrent-Pro-Torrent-App-6.1.7-Mod.png "ÂµTorrent Pro Torrent App 6.1.7 Mod APK For Android")
+![µTorrent Pro Torrent App 6.1.7 Mod APK For Android](https://i1.wp.com/apkhome.net/wp-content/uploads/2020/01/µTorrent-Pro-Torrent-App-6.1.7-Mod.png "µTorrent Pro Torrent App 6.1.7 Mod APK For Android")
 
   
 
-ÂµTorrent Pro Torrent App 6.1.7 Mod APK For Android
+µTorrent Pro Torrent App 6.1.7 Mod APK For Android
 
-Find torrents and download them directly to your phone or tablet, ad-free, with the official uTorrentÂ® Pro app for Android - now with battery saving and automatic shutdown features.  
-Upgrade to the Pro version of the uTorrentÂ® application - from the inventors of the uTorrent protocol and the uTorrent application, the uTorrent client is the # 1 torrent client in the world.  
+Find torrents and download them directly to your phone or tablet, ad-free, with the official uTorrent® Pro app for Android - now with battery saving and automatic shutdown features.  
+Upgrade to the Pro version of the uTorrent® application - from the inventors of the uTorrent protocol and the uTorrent application, the uTorrent client is the # 1 torrent client in the world.  
 **Characteristics:**  
 \* Clean and clear design  
 \* Wi-Fi only mode to save on mobile data  
@@ -25,9 +25,9 @@ Upgrade to the Pro version of the uTorrentÂ® application - from the inventors 
 **Supported Android**  
 {5.0 and UP}  
 **Supported Android Version**:-  
-Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
-Download ÂµTorrent Pro Torrent App 6.1.7 Mod APK For Android
+Download µTorrent Pro Torrent App 6.1.7 Mod APK For Android
 ============================================================
 
 Additional Information

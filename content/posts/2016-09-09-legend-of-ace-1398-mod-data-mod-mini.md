@@ -16,7 +16,7 @@ Legend of Ace 1.39.8 MOD + DATA (MOD MINI MAP) APK For Android
 
 LoA has greatly improved the genre of strategy games. With a replacement of the object system by a card system. Therefore, players will not have to worry about item recipes. Instead, there are hundreds of cards to choose from to strengthen a hero. Each player can have a unique strategy for each hero.
 
-LoA takes place at a rapid pace. Each part lasts only 10 minutes. So that players don't miss the other beautiful things in their lives. Imagine the difference between calling back your girlfriend within 10 minutes and 30 minutes â¦â¦â¦
+LoA takes place at a rapid pace. Each part lasts only 10 minutes. So that players don't miss the other beautiful things in their lives. Imagine the difference between calling back your girlfriend within 10 minutes and 30 minutes ¦¦¦
 
 LoA relies heavily on teamwork. Each team has five players. Each player must choose a role to play, such as Defender, Healer, Shooter, Mage, Jungle. Players must cooperate to defeat enemies.
 
@@ -25,7 +25,7 @@ LoA is the best place to show off your talent. With the ranking and search syste
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: MOD MINI MAP**
 

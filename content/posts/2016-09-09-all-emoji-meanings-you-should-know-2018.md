@@ -1921,7 +1921,7 @@ This is the Taurus zodiac sign emoji and it represents a Bull.
 
 This is the Gemini zodiac sign emoji and it represents Twins.  
 
-### Cancer![ Cancer](https://beebom.com/wp-content/uploads/2018/11/%C2%99%C2%8B-Cancer.png)
+### Cancer![ Cancer](https://beebom.com/wp-content/uploads/2018/11/%C2%99%C2%8B-Cancer.png)
 
   
 

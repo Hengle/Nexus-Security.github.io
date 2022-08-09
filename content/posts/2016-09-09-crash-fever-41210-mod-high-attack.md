@@ -1,14 +1,14 @@
 ---
-title: 'Crash Fever 4.1.2.10 MOD (High Attack + Monster Low Attack)Â  APK For Android'
+title: 'Crash Fever 4.1.2.10 MOD (High Attack + Monster Low Attack)  APK For Android'
 date: 2019-12-08T02:28:00+01:00
 draft: false
 ---
 
-![Crash Fever 4.1.2.10 MOD (High Attack + Monster Low Attack)Â  APK For Android](https://i0.wp.com/apkhome.net/wp-content/uploads/2019/12/Crash-Fever.png "Crash Fever 4.1.2.10 MOD (High Attack + Monster Low Attack)Â  APK For Android")
+![Crash Fever 4.1.2.10 MOD (High Attack + Monster Low Attack)  APK For Android](https://i0.wp.com/apkhome.net/wp-content/uploads/2019/12/Crash-Fever.png "Crash Fever 4.1.2.10 MOD (High Attack + Monster Low Attack)  APK For Android")
 
   
 
-Crash Fever 4.1.2.10 MOD (High Attack + Monster Low Attack)Â  APK For Android
+Crash Fever 4.1.2.10 MOD (High Attack + Monster Low Attack)  APK For Android
 
 28 rare incubators available in global multiplayer!  
 Get ready for the ultimate association and destruction game!  
@@ -28,11 +28,11 @@ Connect and play with your friends for even more fun! Work as a team and decide 
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: High Attack + Monster Low Attack**
 
-Download Crash Fever 4.1.2.10 MOD (High Attack + Monster Low Attack)Â  APK For Android
+Download Crash Fever 4.1.2.10 MOD (High Attack + Monster Low Attack)  APK For Android
 ======================================================================================
 
 Additional Information

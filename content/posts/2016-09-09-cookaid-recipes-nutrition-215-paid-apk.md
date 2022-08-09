@@ -10,12 +10,12 @@ draft: false
 
 CookAid Recipes & Nutrition 2.1.5 Paid APK For Android
 
-CookAid offers more than 300,000 recipes in more than 20 languages ââworldwide, including nutrition information, health scores and recommended daily diagrams. The recipes are organized into different categories, diets and types of foods and in a range of world cuisines. Presented in a simple to follow format including images of all the ingredients and recipes, the instructions can be easily followed in your own kitchen.
+CookAid offers more than 300,000 recipes in more than 20 languages worldwide, including nutrition information, health scores and recommended daily diagrams. The recipes are organized into different categories, diets and types of foods and in a range of world cuisines. Presented in a simple to follow format including images of all the ingredients and recipes, the instructions can be easily followed in your own kitchen.
 
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 Download CookAid Recipes & Nutrition 2.1.5 Paid APK For Android
 ===============================================================

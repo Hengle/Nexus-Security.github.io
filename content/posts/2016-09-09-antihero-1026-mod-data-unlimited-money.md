@@ -12,7 +12,7 @@ Antihero 1.0.26 MOD + DATA (Unlimited Money) APK For Android
 
 Become a master thief feared and respected in Antihero, a fast virtual board game. Use discretion, cunning and casual assassination to build the most powerful thieves guild in this gas-lit Victorian underground world.
 
-AN OBJECTIVE. NUMEROUS ENEMIES. Live a scripted campaign, face the AI ââin skirmish and play multiplayer rated PvP or not.
+AN OBJECTIVE. NUMEROUS ENEMIES. Live a scripted campaign, face the AI in skirmish and play multiplayer rated PvP or not.
 
 DEFINE YOUR FRIENDS. Invite friends to play asynchronously or increase the pressure in a live match. Define a personalized "rules of procedure" and adapt the game to your tastes!
 
@@ -23,7 +23,7 @@ FURTIVITY, AGGRESSION AND MAGOUILLES! Upgrade your guild, recruit orphans and mo
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: Unlimited Money**
 
@@ -32,7 +32,7 @@ Download Antihero 1.0.26 MOD + DATA (Unlimited Money) APK For Android
 
 **Mod**
 
-Â 
+ 
 
 **Obb**
 

@@ -19,12 +19,12 @@ From the creators of the winner, the Kingdom Rush saga is the most extraordinary
 \* 40+ UPGRADES to build the ultimate RTS army! Choose between defense drones, Napalm rockets, ricochet explosions, lethal weapons and many more.  
 \* +7 UNITS to fight and give your hero extra firepower!  
 \* 8 SPECIAL WEAPONS to unleash hell on your enemies and continue to expand your tactics like space itself! What could be better than a well placed missile? An orbital strike of 50 highly explosive missiles!  
-\* Defeat unique bosses in epic battles. They are green, nasty, kill machines !!! Wellâ¦ some are machines and these aliens are not greenâ¦ but they are all massive and determined to crush you. Dress up, Marines!
+\* Defeat unique bosses in epic battles. They are green, nasty, kill machines !!! Well¦ some are machines and these aliens are not green¦ but they are all massive and determined to crush you. Dress up, Marines!
 
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: Unlimited Money + Unlocked**
 

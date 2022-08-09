@@ -67,7 +67,7 @@ O cybercrime consiste nos golpistas fingirem que são empresas bancárias. Eles 
   
 6\. "Get rich quick"  
   
-Essa prática também é conhecida como "money flipping". Um golpe de investimento que promete as vítimas um retorno financeiro rápido. Os scammers pedem para os internautas investirem uma determinada quantia e prometem um lucro instantâneo. Após ao investimento inicial, eles simulam o lucro gerado e pedem que a vítima pague uma taxa para receber. Após a transferência do dinheiro, fecham a conta falsa e desaparecem.  
+Essa prática também é conhecida como "money flipping". Um golpe de investimento que promete as vítimas um retorno financeiro rápido. Os scammers pedem para os internautas investirem uma determinada quantia e prometem um lucro instantneo. Após ao investimento inicial, eles simulam o lucro gerado e pedem que a vítima pague uma taxa para receber. Após a transferência do dinheiro, fecham a conta falsa e desaparecem.  
   
 De acordo com o site Action Fraud, o período entre outubro de 2018 e fevereiro de 2019, foram reportados 356 casos. O valor médio roubado por pessoa é de £ 8,900 (aproximadamente R$ 43.8423).  
   
@@ -79,7 +79,7 @@ Posts no estilo "fique rico rapidamente" são um tipo de scamm comum na Internet
 Nesse tipo de esquema, o golpista seduz e constrói uma relação amorosa com a vítima, geralmente mulher, através de um perfil falso. Os criminosos, após estabelecerem uma relação de confiança, alegam que estão com dificuldades financeiras e pedem uma determinada quantia em dinheiro. Em alguns casos, eles se passam por estrangeiros que precisam de dinheiro para ir de encontro as vítimas. Após receberem, desaparecem.  
   
   
-Outro método utilizado é dizer para as vítimas, que estão mandando um presente e depois alegar que ficou preso na alfândega. Nesse momento, eles ligam para as parceiras e pedem uma quantia para liberá-lo.  
+Outro método utilizado é dizer para as vítimas, que estão mandando um presente e depois alegar que ficou preso na alfndega. Nesse momento, eles ligam para as parceiras e pedem uma quantia para liberá-lo.  
   
 Como se proteger  
 Não compartilhe dados pessoais ou bancários com pessoas, instituições ou empresas que não conhece. Para realizar pagamentos, dê preferência a aplicativos como Paypal e PagSeguro.  

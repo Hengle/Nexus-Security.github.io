@@ -12,7 +12,7 @@ Battle Girl High School 1.1.49 Hack MOD APK For Android
 
 From that time you downloaded this game you will become their "teacher".  
 Refreshing action with one finger!  
-By ãLive2Dã', pretty girls move like anime! "Hang on" through the smartphone and win the trust of their girlfriends!  
+By ãLive2Dã', pretty girls move like anime! "Hang on" through the smartphone and win the trust of their girlfriends!  
 If you change to a new outfit, the appearance changes both in illustration and 3D character! At the same time you will have a new ability (skill)! Of course, you can change the appearance just as it is with the ability!  
 Easy operation with movement and finger attack! Tap the screen rhythm well, join the combo and let the boss be kicked off with the deadly skill! Your sense of rhythm leads the girl to victory!
 
@@ -21,7 +21,7 @@ For More Info
 **Supported Android**  
 {4.0 and UP}  
 Supported Android Version:-  
-Ice Cream Sandwich (4.0â"4.0.4)- Jelly Bean (4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) or UP
+Ice Cream Sandwich (4.0"4.0.4)- Jelly Bean (4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) or UP
 
 Download Battle Girl High School 1.1.49 Hack MOD APK For Android
 ================================================================

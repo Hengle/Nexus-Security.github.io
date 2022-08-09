@@ -22,7 +22,7 @@ VIP Notes protected notepad with attachments 9.9.26 Paid APK For Android
 **Supported Android**  
 {6.0 and UP}  
 **Supported Android Version**:-  
-Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 Download VIP Notes protected notepad with attachments 9.9.26 Paid APK For Android
 =================================================================================

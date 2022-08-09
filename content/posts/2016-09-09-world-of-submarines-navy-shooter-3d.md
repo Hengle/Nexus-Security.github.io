@@ -1,14 +1,14 @@
 ---
-title: 'WORLD of SUBMARINES Navy Shooter 3D Wargame 1.8 MOD (No Reload Time)Â  APK For Android'
+title: 'WORLD of SUBMARINES Navy Shooter 3D Wargame 1.8 MOD (No Reload Time)  APK For Android'
 date: 2020-01-30T02:00:00+01:00
 draft: false
 ---
 
-![WORLD of SUBMARINES Navy Shooter 3D Wargame 1.8 MOD (No Reload Time)Â  APK For Android](https://i2.wp.com/apkhome.net/wp-content/uploads/2020/01/WORLD-of-SUBMARINES-Navy-Shooter-3D-Wargame-1.8-MOD-No-Reload-Time.png "WORLD of SUBMARINES Navy Shooter 3D Wargame 1.8 MOD (No Reload Time)Â  APK For Android")
+![WORLD of SUBMARINES Navy Shooter 3D Wargame 1.8 MOD (No Reload Time)  APK For Android](https://i2.wp.com/apkhome.net/wp-content/uploads/2020/01/WORLD-of-SUBMARINES-Navy-Shooter-3D-Wargame-1.8-MOD-No-Reload-Time.png "WORLD of SUBMARINES Navy Shooter 3D Wargame 1.8 MOD (No Reload Time)  APK For Android")
 
   
 
-WORLD of SUBMARINES Navy Shooter 3D Wargame 1.8 MOD (No Reload Time)Â  APK For Android
+WORLD of SUBMARINES Navy Shooter 3D Wargame 1.8 MOD (No Reload Time)  APK For Android
 
 Dive into the deep sea with the best FREE online wargame World Of Submarines! Be captain of a real submarine in tactical warfare against players from all over the world in dynamic underwater PvP war game.
 
@@ -31,11 +31,11 @@ Make unique sub warships with RPG system of upgrades and abilities. Upgrade engi
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: No Reload Time**
 
-Download WORLD of SUBMARINES Navy Shooter 3D Wargame 1.8 MOD (No Reload Time)Â  APK For Android
+Download WORLD of SUBMARINES Navy Shooter 3D Wargame 1.8 MOD (No Reload Time)  APK For Android
 ===============================================================================================
 
 Additional Information

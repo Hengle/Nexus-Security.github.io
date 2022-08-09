@@ -70,13 +70,13 @@ Para incorporar a segurança em sua cultura, faça-a sempre presente. Você pod
 
 **Scott Matteson:** Quais sistemas ou processos eles devem implementar?  
    
-**Alex Manea:** Comece seguindo os princípios fundamentais de [menor privilégio](https://en.wikipedia.org/wiki/Principle_of_least_privilege) , [descentralização](https://hyker.io/technology/decentralized-security-model/) e [redundância](https://en.wikipedia.org/wiki/Redundancy_(engineering)) .
+**Alex Manea:** Comece seguindo os princípios fundamentais de [menor privilégio](https://en.wikipedia.org/wiki/Principle_of_least_privilege) , [descentralização](https://hyker.io/technology/decentralized-security-model/) e [redundncia](https://en.wikipedia.org/wiki/Redundancy_(engineering)) .
 
 *   **Menos privilégio** significa nunca conceder acesso a mais recursos do que o necessário para concluir a tarefa. Isso vale para software, mas também para sistemas baseados em humanos, como concessão de acesso físico a um prédio de escritórios após o expediente. 
 
 *   **A descentralização** se aplica tanto aos processos humanos quanto às arquiteturas de software. Quando dois indivíduos precisam aprovar um processo financeiro ou adicionar um usuário a um sistema de software, um processo humano é descentralizado. 
 
-*   Por fim, use e forneça serviços baseados em **redundância** . Isso significa que várias instâncias do seu ambiente são disponibilizadas para reduzir a probabilidade de um invasor poder interromper totalmente seus serviços.
+*   Por fim, use e forneça serviços baseados em **redundncia** . Isso significa que várias instncias do seu ambiente são disponibilizadas para reduzir a probabilidade de um invasor poder interromper totalmente seus serviços.
 
 Quando as coisas inevitavelmente dão errado, aprenda com cada incidente investigando e descobrindo a causa raiz. Por fim, elabore um plano de correção e pratique usando-o para que você possa se recuperar rapidamente.
 

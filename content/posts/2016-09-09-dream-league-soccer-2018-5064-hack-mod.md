@@ -10,8 +10,8 @@ draft: false
 
 Dream League Soccer 2018 5.064 Hack MOD APK + Data APK For Android
 
-Dream League Soccer 2018 finally arrives, more successful than ever! Football has changed, and here is YOUR chance to be the best team on the planet. Hire FIFPro â¢ licensed superstars, build your own stadium, and battle the rest of the world via Dream League Online. On the way to glory and the highs of football!  
-\+ The licensed players of FIFPro â¢ offer you the most authentic Dream League Soccer experience to date!  
+Dream League Soccer 2018 finally arrives, more successful than ever! Football has changed, and here is YOUR chance to be the best team on the planet. Hire FIFPro ¢ licensed superstars, build your own stadium, and battle the rest of the world via Dream League Online. On the way to glory and the highs of football!  
+\+ The licensed players of FIFPro ¢ offer you the most authentic Dream League Soccer experience to date!  
 \+ The freedom to create, customize and control your own dream team!  
 \+ Impose your style of play through 6 divisions and win more than 7 cups!  
 \+ Build your own stadium to show off your stars!  
@@ -22,7 +22,7 @@ Dream League Soccer 2018 finally arrives, more successful than ever! Football ha
 **Supported Android**  
 {4.4 and UP}  
 Supported Android Version:-  
-KitKat (4.4â"4.4.4) - Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1)
+KitKat (4.4"4.4.4) - Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1)
 
 Hack MOD + Data Unlimited Money
 

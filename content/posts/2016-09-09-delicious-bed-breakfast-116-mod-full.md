@@ -12,12 +12,12 @@ Delicious Bed & Breakfast 1.1.6 MOD (Full Version) APK For Android
 
 Have you always wanted to manage your own B&B? Discover all the fun while you repair an old mansion and turn it into a Bed & Breakfast. The grand opening is approaching and much remains to be done. Not to mention the decoration of the house and the garden!
 
-With Emily and the rest of the OâMalley family, you will build, repair, cultivate ... and have a lot of fun! Experience their comforting adventures in your history book. Restore and decorate to your liking and prepare to welcome guests from around the world. Soon, they will register in your guestbook for an unforgettable stay. Show off your guests, harvest local products and prepare seasonal dishes. Get your farming game and reap the fun!
+With Emily and the rest of the OMalley family, you will build, repair, cultivate ... and have a lot of fun! Experience their comforting adventures in your history book. Restore and decorate to your liking and prepare to welcome guests from around the world. Soon, they will register in your guestbook for an unforgettable stay. Show off your guests, harvest local products and prepare seasonal dishes. Get your farming game and reap the fun!
 
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: Full Version  
 **

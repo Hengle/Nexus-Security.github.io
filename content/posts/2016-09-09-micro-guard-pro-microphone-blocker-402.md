@@ -10,7 +10,7 @@ draft: false
 
 Micro Guard PRO Microphone Blocker 4.0.2 Paid APK For Android
 
-Microphone blocker and microphone protection with Micro Guard â¢ PRO.  
+Microphone blocker and microphone protection with Micro Guard ¢ PRO.  
 **Characteristics:**  
 \* Microphone protection  
 \* Microphone blocker  
@@ -19,12 +19,12 @@ Microphone blocker and microphone protection with Micro Guard â¢ PRO.
 \* List of applications with access to the microphone  
 \* Pop-Ups regarding security vulnerabilities  
 \* Log file protocol  
-\* Deep Detective â¢ PRO  
-\* Deep Detective â¢ Live: Anti-Spyware Scanner (subscription)  
+\* Deep Detective ¢ PRO  
+\* Deep Detective ¢ Live: Anti-Spyware Scanner (subscription)  
 **Supported Android**  
 {5.0 and UP}  
 **Supported Android Version**:-  
-Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 Download Micro Guard PRO Microphone Blocker 4.0.2 Paid APK For Android
 ======================================================================

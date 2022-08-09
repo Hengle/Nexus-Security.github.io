@@ -25,7 +25,7 @@ For More Info
 **Supported Android**  
 {5.0 and UP}  
 Supported Android Version:-  
-Lollipop (5.0â"5.0.2) or UP
+Lollipop (5.0"5.0.2) or UP
 
 Hack MOD Unlimited Money
 

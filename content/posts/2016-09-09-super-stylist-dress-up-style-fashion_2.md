@@ -11,7 +11,7 @@ draft: false
 Super Stylist Dress Up & Style Fashion Guru 1.3.04 MOD (Unlimited Money + Lives + Adfree) APK For Android
 
 NEWS: There is a new fashion designer for the stars of the city, and it turns out that it is you! In this fashion game, it's all about word of mouth. Make sure your dress and makeup style is up to date so you can build a large clientele. Being seen! Go to fantasy events with your customers and take pictures for their stylograms so they can show off your dress and make-up skills in this fashion history game.  
-You have just realized that you could transform your crazy purchases, your clothes and your make-up into moneyâ¦ by being a super stylist girl! Now anyone who is someone will come to you, because you are the girl who knows how to style them. Create perfect styling looks for your clients. Join them at their VIP events and photograph them so the world can see how incredibly talented you are.
+You have just realized that you could transform your crazy purchases, your clothes and your make-up into money¦ by being a super stylist girl! Now anyone who is someone will come to you, because you are the girl who knows how to style them. Create perfect styling looks for your clients. Join them at their VIP events and photograph them so the world can see how incredibly talented you are.
 
 **Features:**  
 \* Open a business of fashion stylists and accumulate an impressive clientele in this awesome fashion history game.  
@@ -25,7 +25,7 @@ You have just realized that you could transform your crazy purchases, your cloth
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: Unlimited Money + Lives + Adfree  
 **

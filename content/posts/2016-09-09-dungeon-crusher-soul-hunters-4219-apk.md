@@ -1,14 +1,14 @@
 ---
-title: 'Dungeon Crusher Soul Hunters 4.2.19 APK + MOD (Gold increase instead of decreasing when used + More)Â  APK For Android'
+title: 'Dungeon Crusher Soul Hunters 4.2.19 APK + MOD (Gold increase instead of decreasing when used + More)  APK For Android'
 date: 2020-01-28T21:42:00+01:00
 draft: false
 ---
 
-![Dungeon Crusher Soul Hunters 4.2.19 APK + MOD (Gold increase instead of decreasing when used + More)Â  APK For Android](https://i2.wp.com/apkhome.net/wp-content/uploads/2020/01/Dungeon-Crusher-Soul-Hunters-4.2.19-APK-MOD-Gold-increase-instead-of-decreasing-when-used-More.png "Dungeon Crusher Soul Hunters 4.2.19 APK + MOD (Gold increase instead of decreasing when used + More)Â  APK For Android")
+![Dungeon Crusher Soul Hunters 4.2.19 APK + MOD (Gold increase instead of decreasing when used + More)  APK For Android](https://i2.wp.com/apkhome.net/wp-content/uploads/2020/01/Dungeon-Crusher-Soul-Hunters-4.2.19-APK-MOD-Gold-increase-instead-of-decreasing-when-used-More.png "Dungeon Crusher Soul Hunters 4.2.19 APK + MOD (Gold increase instead of decreasing when used + More)  APK For Android")
 
   
 
-Dungeon Crusher Soul Hunters 4.2.19 APK + MOD (Gold increase instead of decreasing when used + More)Â  APK For Android
+Dungeon Crusher Soul Hunters 4.2.19 APK + MOD (Gold increase instead of decreasing when used + More)  APK For Android
 
 The game is for the really lazy, does not require much time: the characters explore the dungeons even if you are offline. All you have to do is take your reward from time to time.
 
@@ -31,12 +31,12 @@ The combat mechanics of PvP competition are unique to games like this \* the col
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: Gold increase instead of decreasing when used + More  
 **
 
-Download Dungeon Crusher Soul Hunters 4.2.19 APK + MOD (Gold increase instead of decreasing when used + More)Â  APK For Android
+Download Dungeon Crusher Soul Hunters 4.2.19 APK + MOD (Gold increase instead of decreasing when used + More)  APK For Android
 ===============================================================================================================================
 
 **Original**

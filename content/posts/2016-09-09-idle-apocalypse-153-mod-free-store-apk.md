@@ -10,7 +10,7 @@ draft: false
 
 Idle Apocalypse 1.53 MOD (Free store) APK For Android
 
-Have you always wanted to lead a cult? Summon legendary demon gods? Control hordes of unwashed monsters? Make a tower so high that it defies all the laws of physics? Orâ¦ destroy the world?
+Have you always wanted to lead a cult? Summon legendary demon gods? Control hordes of unwashed monsters? Make a tower so high that it defies all the laws of physics? Or¦ destroy the world?
 
 Idle Apocalypse is the best clicker apocalypse simulator of 2019! Build your tower and build it in the sky and underground. Tap to create hordes of monsters. Cast spells to fight the brave idiots. Summon the legendary idols \* a dreaded group of gods \* and bring the end of time to life in this new inactive taper game.
 
@@ -32,7 +32,7 @@ Endless Idle Game
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: Free store**
 

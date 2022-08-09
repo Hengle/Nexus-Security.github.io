@@ -15,7 +15,7 @@ Tiles is also using the new Awareness API to learn about the weather and locatio
 **Supported Android**  
 {7.0 and UP}  
 Supported Android Version:-  
-Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1)
+Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1)
 
 Download Tiles 2.0.8 APK For Android
 ====================================

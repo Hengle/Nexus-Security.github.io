@@ -10,7 +10,7 @@ draft: false
 
 Sea Battle 2 2.2.0 MOD (Unlimited Money) APK For Android
 
-Taking all the elements that gave the famous board game cult culture its letters of nobility, Sea Battle 2 changes the game by offering new abilities and an XXL arsenal! Millions of players around the world are captivated by this thrilling gameplay! You have warships, planes, submarines, mines and radars ... but that's not all! Strategically position your battleships in the heart of the theater of operations and pound the area of ââyour opponent. Use various types of weapons to sink the enemy's armada and snatch victory from it in extremis!
+Taking all the elements that gave the famous board game cult culture its letters of nobility, Sea Battle 2 changes the game by offering new abilities and an XXL arsenal! Millions of players around the world are captivated by this thrilling gameplay! You have warships, planes, submarines, mines and radars ... but that's not all! Strategically position your battleships in the heart of the theater of operations and pound the area of your opponent. Use various types of weapons to sink the enemy's armada and snatch victory from it in extremis!
 
 **features:**
 
@@ -35,7 +35,7 @@ Take turns playing with your friends on the same phone (or the same tablet), pos
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: Unlimited Money**
 

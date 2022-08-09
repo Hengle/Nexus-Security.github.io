@@ -10,20 +10,20 @@ draft: false
 
 Draw Something Classic 2.400.066 MOD (full version) APK For Android
 
-Draw Something is the âWorldâs Most Popular Drawing Gameâ. Have fun with your friends and family exchanging doodle art. Sketch a perfect work of art and participate in our contests. Pick up your brush and start painting now.
+Draw Something is the Worlds Most Popular Drawing Game. Have fun with your friends and family exchanging doodle art. Sketch a perfect work of art and participate in our contests. Pick up your brush and start painting now.
 
 **Features:**  
 \* You don't need artistic skills to have fun with this game. Doodles, stick figures and sense of humor are welcome.  
 \* Enjoy the addictive turn based drawing game in Draw & Guess mode. Sketch and show your creativity with colors.  
 \* Guess what other artists have drawn in Guess Something mode.  
-\* Loads of new and updated words to draw! From Science to Pop Culture, weâve got you covered.  
+\* Loads of new and updated words to draw! From Science to Pop Culture, weve got you covered.  
 \* Make new friends through art. Challenge friends for a quick match or partner up with new ones!  
-\* Practice drawing and unlock color packs. Weâve got all the colors of the rainbow and then some for the best sketching and painting experience!
+\* Practice drawing and unlock color packs. Weve got all the colors of the rainbow and then some for the best sketching and painting experience!
 
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: full version**
 

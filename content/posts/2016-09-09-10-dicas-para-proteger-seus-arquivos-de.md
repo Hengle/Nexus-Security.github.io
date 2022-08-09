@@ -78,7 +78,7 @@ Está se tornando óbvio que o ransomware é um grande problema ao qual os usuá
 
 Aqui estão 10 dicas simples para proteger seus dados de ransomware:
 
-1.  Faça [backup de](https://www.kaspersky.com/blog/call-for-backup/1387/) seus arquivos importantes regularmente. É altamente recomendável que você crie duas cópias de backup: uma para ser armazenada na nuvem (usando serviços como Dropbox, Google Drive etc.) e a outra gravada em um meio físico de armazenamento (disco rígido portátil, pen drive, extra laptop etc.). Quando a sua cópia de backup estiver pronta, configure algumas restrições para os arquivos: o dispositivo 'Plano B' deve ter apenas permissões de leitura / gravação, sem a oportunidade de modificar ou excluir os arquivos. Sua cópia de backup pode salvá-lo em todos os tipos de circunstâncias, incluindo a remoção acidental do arquivo crítico ou falha na unidade.
+1.  Faça [backup de](https://www.kaspersky.com/blog/call-for-backup/1387/) seus arquivos importantes regularmente. É altamente recomendável que você crie duas cópias de backup: uma para ser armazenada na nuvem (usando serviços como Dropbox, Google Drive etc.) e a outra gravada em um meio físico de armazenamento (disco rígido portátil, pen drive, extra laptop etc.). Quando a sua cópia de backup estiver pronta, configure algumas restrições para os arquivos: o dispositivo 'Plano B' deve ter apenas permissões de leitura / gravação, sem a oportunidade de modificar ou excluir os arquivos. Sua cópia de backup pode salvá-lo em todos os tipos de circunstncias, incluindo a remoção acidental do arquivo crítico ou falha na unidade.
 
 > [![](https://pbs.twimg.com/profile_images/781819734459293696/GjY6aPRY_normal.jpg)](https://twitter.com/e_kaspersky)
 > 
@@ -193,7 +193,7 @@ See Eugene Kaspersky's other Tweets
 
 [![](https://media.kasperskydaily.com/wp-content/uploads/sites/92/2016/12/06021037/ransomware_EN-1.png)](https://www.kaspersky.com/internet-security?redef=1&reseller=gl_kdailyplacehold_acq_ona_smm__onl_b2c_kasperskydaily_wpplaceholder____kismd___)
 
-9.  Se você tiver azar de ter seus arquivos criptografados, não pague o resgate, a menos que o acesso instantâneo a alguns arquivos seja crítico. De fato, cada pagamento alimenta esses negócios ilegais que prosperariam desde que você pagasse dinheiro.
+9.  Se você tiver azar de ter seus arquivos criptografados, não pague o resgate, a menos que o acesso instantneo a alguns arquivos seja crítico. De fato, cada pagamento alimenta esses negócios ilegais que prosperariam desde que você pagasse dinheiro.
 
 > [![](https://pbs.twimg.com/profile_images/1182299221342511105/j6UsJLlV_normal.jpg)](https://twitter.com/kaspersky)
 > 

@@ -10,7 +10,7 @@ draft: false
 
 Mahjong Journey A Tile Match Adventure Quest 1.22.4900 MOD (Free Shopping) APK For Android
 
-Embark on a magical, addictive adventure with the Mahjong JourneyÂ® Solo Journey!
+Embark on a magical, addictive adventure with the Mahjong Journey® Solo Journey!
 
 The Mahjong Shanghai is getting a new look at this magical journey where you will help a girl who, accompanied by her grandfather, will have to cross the globe to find her missing relatives! Fight your way through matching pairs of tiles and empty hundreds of game boards. Get trophies with feats and be captivated by innovative gameplay that's full of twists (eg Shuffle helps you you get out of a bad situation and the Firecracker will explode several pairs of tiles). Explore the Forbidden City, the Virupaksha Temple, the Taj Mahal and the famous Mount Fuji while completing dangerous quests and earn gold stars by completing levels as fast as possible!
 
@@ -23,7 +23,7 @@ The Mahjong Shanghai is getting a new look at this magical journey where you wil
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: Free Shopping**
 

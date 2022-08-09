@@ -10,12 +10,12 @@ draft: false
 
 Mobile Print PrinterShare Premium 11.25.5 APK For Android
 
-Print directly from an Android phone or tablet on almost any printer! Print photos, emails, documents (including PDF, MicrosoftÂ® Word, ExcelÂ®, PowerPointÂ®, and more), invoices, messages, web pages, and more. PrinterShare makes printing easy and convenient whether your printer is next to you or around the world!
+Print directly from an Android phone or tablet on almost any printer! Print photos, emails, documents (including PDF, Microsoft® Word, Excel®, PowerPoint®, and more), invoices, messages, web pages, and more. PrinterShare makes printing easy and convenient whether your printer is next to you or around the world!
 
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 Download Mobile Print PrinterShare Premium 11.25.5 APK For Android
 ==================================================================

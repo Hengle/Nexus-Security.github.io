@@ -10,7 +10,7 @@ draft: false
 
 CSR Racing 2 1.11.3 APK + Hack MOD + Data APK For Android
 
-With its breathtaking graphics, CSR2 offers you a race of hyper-realistic dragsters. Measure yourself with online players all over the world with your personalized supercars including the LaFerrari, the McLaren P1 â¢, the Koenigsegg One: 1 and much more.  
+With its breathtaking graphics, CSR2 offers you a race of hyper-realistic dragsters. Measure yourself with online players all over the world with your personalized supercars including the LaFerrari, the McLaren P1 ¢, the Koenigsegg One: 1 and much more.  
 Go to your friends to form a crew, improve your car to reach maximum speed and dominate the competition in the world crew events. CSR2 is brand new, download it for free and race now!  
 \+ Race to a new challenge! Measure yourself to opponents from around the world or race with friends over real-time challenges.  
 \+ cars can be customized with a wide range of paints, rims, stirrups and interiors as in a real car.  
@@ -21,7 +21,7 @@ For More Info
 **Supported Android**  
 {4.1 and UP}  
 Supported Android Version:-  
-Jelly Bean (4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) or UP
+Jelly Bean (4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) or UP
 
 APK + Hack MOD + Data Unlimited Money
 

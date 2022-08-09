@@ -10,14 +10,14 @@ draft: false
 
 FIFA Soccer 10.4.00 Hack MOD APK For Android
 
-The FIFA World Cup 2018 â¢ is coming to FIFA Mobile! If you discover FIFA Mobile, create and manage your team with Cristiano Ronaldo featured. Make your players superstars, challenge your opponents and discover new content every day. Whether you are a confirmed player, a beginner or already ready for the FIFA World Cup â¢, FIFA Mobile is sure to please you.  
+The FIFA World Cup 2018 ¢ is coming to FIFA Mobile! If you discover FIFA Mobile, create and manage your team with Cristiano Ronaldo featured. Make your players superstars, challenge your opponents and discover new content every day. Whether you are a confirmed player, a beginner or already ready for the FIFA World Cup ¢, FIFA Mobile is sure to please you.  
 Build the most competitive team by choosing 11 players from over 550 real teams, including past and current stars, and train them to more than 100 GEN. Add wealth to your squad, manage your players on the move and quickly set tactics before each game. Make the right decisions and make your club a reference.  
 Participate in thrilling games where you play the offensive phases in Multi-Attack mode. This innovative competitive mode takes you to the heart of the action as you will have to give everything in 90 seconds to try to impose yourself in order to climb the hierarchy and win seasonal rewards throughout the year.
 
 **Supported Android**  
 {4.1 and UP}  
 Supported Android Version:-  
-Jelly Bean (4.1â"4.3.1) - KitKat (4.4â"4.4.4) - Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1)
+Jelly Bean (4.1"4.3.1) - KitKat (4.4"4.4.4) - Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1)
 
 Download FIFA Soccer 10.4.00 Hack MOD APK For Android
 =====================================================

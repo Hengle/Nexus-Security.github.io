@@ -10,12 +10,12 @@ draft: false
 
 LEGO Tower 1.7.0 MOD (Unlimited Money) APK For Android
 
-Build and use your own LEGOÂ® tower! Build a wide range of apartments and businesses so that your Minifigure residents can live, work and play. Visit your friends' towers and swap objects to help build them. Collect hundreds of unique figurines and discover hidden characters. Build your dream LEGOÂ® tower at new heights, the sky is the limit with the content of NINJAGO, City & Creator!
+Build and use your own LEGO® tower! Build a wide range of apartments and businesses so that your Minifigure residents can live, work and play. Visit your friends' towers and swap objects to help build them. Collect hundreds of unique figurines and discover hidden characters. Build your dream LEGO® tower at new heights, the sky is the limit with the content of NINJAGO, City & Creator!
 
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: MOD TYPE:  
 **

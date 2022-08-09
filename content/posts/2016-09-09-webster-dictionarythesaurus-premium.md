@@ -10,7 +10,7 @@ draft: false
 
 Webster's Dictionary+Thesaurus Premium 11.1.559 APK For Android
 
-Webster's New World Dictionary and Thesaurus is a bundle of software from the Websterâs New World College Dictionary and the Websterâs New World Rogetâs Thesaurus making it the perfect reference for use in school, office or home.  
+Webster's New World Dictionary and Thesaurus is a bundle of software from the Websters New World College Dictionary and the Websters New World Rogets Thesaurus making it the perfect reference for use in school, office or home.  
 **Characteristics:**  
 \* Designed to give you the freedom to structure your studies as you wish, the "Favorites" option allows you to create personalized files with word lists from the vast library of entries  
 \* List "recent" to easily review the words searched  
@@ -19,7 +19,7 @@ Webster's New World Dictionary and Thesaurus is a bundle of software from the We
 **Supported Android**  
 {4.1 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 Download Webster's Dictionary+Thesaurus Premium 11.1.559 APK For Android
 ========================================================================

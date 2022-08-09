@@ -157,7 +157,7 @@ Eventually we decided to get in contact with FE International. We were at the ve
 
 **Selling with a Brokerage**
 
-We contacted FE and had to fill out an enormous application that basically asked us everything about Juicer that ended up being a fair amount of work and then we had to meet with them. They came back with a “what we think we can sell Juicer for” valuation, that was slightly lower than we wanted, but not shockingly lower or anything. We proposed they try to sell it for a higher amount like we wanted because of our low costs of operation and untapped potential growth (since we didn’t do any advertising, outbound marketing, etcâ¦)
+We contacted FE and had to fill out an enormous application that basically asked us everything about Juicer that ended up being a fair amount of work and then we had to meet with them. They came back with a “what we think we can sell Juicer for” valuation, that was slightly lower than we wanted, but not shockingly lower or anything. We proposed they try to sell it for a higher amount like we wanted because of our low costs of operation and untapped potential growth (since we didn’t do any advertising, outbound marketing, etc¦)
 
 The process of selling with FE is really top heavy. You spend hours answering questions that eventually end up being compiled into a prospectus that gets passed around to potential buyers. But the best part is: you only have to do everything once. If you try to sell on your own you basically have to go through this entire long painful process with every single potential buyer. It would have killed me.
 

@@ -10,7 +10,7 @@ draft: false
 
 Lilys Garden 1.44.0 MOD (Unlimited Gold Coins + Star) APK For Android
 
-Romance? Garden? Puzzles? YES! Lilyâs Garden is all of that and more. Renovate the garden and solve difficult puzzles with this new FREE and relaxing match-3 explosion game!
+Romance? Garden? Puzzles? YES! Lilys Garden is all of that and more. Renovate the garden and solve difficult puzzles with this new FREE and relaxing match-3 explosion game!
 
 Help Lily renovate her great-aunt's garden to her former glory and match the flowers to solve difficult explosive puzzles. Immerse yourself in a romantic love story full of twists and turns as Lily interacts with a cast of colorful characters. Combine flowers and start your garden renovation \* play with themed boosters and renovate areas with dozens of customization options!
 
@@ -24,7 +24,7 @@ Help Lily renovate her great-aunt's garden to her former glory and match the flo
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: Unlimited Gold Coins + Star  
 **

@@ -1,14 +1,14 @@
 ---
-title: 'FishingStrike 1.39.1 MOD (x20 DMG + TENSION GAGE ââ+ AUTO CAST) APK For Android'
+title: 'FishingStrike 1.39.1 MOD (x20 DMG + TENSION GAGE + AUTO CAST) APK For Android'
 date: 2020-02-02T03:14:00+01:00
 draft: false
 ---
 
-![FishingStrike 1.39.1 MOD (x20 DMG + TENSION GAGE ââ+ AUTO CAST) APK For Android](https://i2.wp.com/apkhome.net/wp-content/uploads/2020/02/FishingStrike-1.39.1-MOD-x20-DMG-TENSION-GAGE-ââ-AUTO-CAST.png "FishingStrike 1.39.1 MOD (x20 DMG + TENSION GAGE ââ+ AUTO CAST) APK For Android")
+![FishingStrike 1.39.1 MOD (x20 DMG + TENSION GAGE + AUTO CAST) APK For Android](https://i2.wp.com/apkhome.net/wp-content/uploads/2020/02/FishingStrike-1.39.1-MOD-x20-DMG-TENSION-GAGE--AUTO-CAST.png "FishingStrike 1.39.1 MOD (x20 DMG + TENSION GAGE + AUTO CAST) APK For Android")
 
   
 
-FishingStrike 1.39.1 MOD (x20 DMG + TENSION GAGE ââ+ AUTO CAST) APK For Android
+FishingStrike 1.39.1 MOD (x20 DMG + TENSION GAGE + AUTO CAST) APK For Android
 
 \* Realistic graphics! Exciting action! Feelings of true suspense! Enjoy the best fishing game out there, made just for you by Netmarble!
 
@@ -29,12 +29,12 @@ New generation fishing game! Take advantage now!
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
-**MOD TYPE: x20 DMG + TENSION GAGE ââ+ AUTO CAST  
+**MOD TYPE: x20 DMG + TENSION GAGE + AUTO CAST  
 **
 
-Download FishingStrike 1.39.1 MOD (x20 DMG + TENSION GAGE ââ+ AUTO CAST) APK For Android
+Download FishingStrike 1.39.1 MOD (x20 DMG + TENSION GAGE + AUTO CAST) APK For Android
 ============================================================================================
 
 Additional Information

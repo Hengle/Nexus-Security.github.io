@@ -15,9 +15,9 @@ Head Soccer 2018 Russia Cup is a free football game in which players have specia
 The career mode: you must choose your favorite player and put him to the test on the world football scene by winning games and points for his training, and by improving his skills: shooting, jumping, free kicks and speed. Friendly mode: fast football matches
 
 **Supported Android**  
-{4.0.3Â and UP}  
+{4.0.3 and UP}  
 Supported Android Version:-  
-Ice Cream Sandwich (4.0.3â"4.0.4) - Jelly Bean (4.1â"4.3.1) - KitKat (4.4â"4.4.4) - Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1)
+Ice Cream Sandwich (4.0.3"4.0.4) - Jelly Bean (4.1"4.3.1) - KitKat (4.4"4.4.4) - Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1)
 
 APK + Hack MOD Unlimited Money
 

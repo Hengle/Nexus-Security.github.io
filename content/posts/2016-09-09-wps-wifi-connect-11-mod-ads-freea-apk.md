@@ -1,23 +1,23 @@
 ---
-title: 'WPS WiFi Connect 1.1 Mod Ads-FreeÂ  APK For Android'
+title: 'WPS WiFi Connect 1.1 Mod Ads-Free  APK For Android'
 date: 2019-12-07T23:28:00+01:00
 draft: false
 ---
 
-![WPS WiFi Connect 1.1 Mod Ads-FreeÂ  APK For Android](https://i1.wp.com/apkhome.net/wp-content/uploads/2019/12/WPS-WiFi-Connect-1.1-Mod-Ads-Free.png "WPS WiFi Connect 1.1 Mod Ads-FreeÂ  APK For Android")
+![WPS WiFi Connect 1.1 Mod Ads-Free  APK For Android](https://i1.wp.com/apkhome.net/wp-content/uploads/2019/12/WPS-WiFi-Connect-1.1-Mod-Ads-Free.png "WPS WiFi Connect 1.1 Mod Ads-Free  APK For Android")
 
   
 
-WPS WiFi Connect 1.1 Mod Ads-FreeÂ  APK For Android
+WPS WiFi Connect 1.1 Mod Ads-Free  APK For Android
 
 WPS Wifi Connect allows you to check the security of your wireless access point using the WPS protocol. The WPS / WPA Wifi protocol is used to connect to a wireless access point using an 8\*digit pin. Unfortunately, many routers are vulnerable to a default PIN that is predefined in the router. WPS Connect Wifi \* Wps App, Wifi Password, Wps Router is a simple and powerful application that can check and detect the WiFi password and the WPS risk. WiFi WPS Connect \* Wps Router, the Password Wifi app is to inform users of the vulnerability of their own WiFi access point.
 
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
-Download WPS WiFi Connect 1.1 Mod Ads-FreeÂ  APK For Android
+Download WPS WiFi Connect 1.1 Mod Ads-Free  APK For Android
 ============================================================
 
 Additional Information

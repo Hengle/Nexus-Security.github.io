@@ -18,13 +18,13 @@ From the creators of the award winner, Kingdom Rush saga comes the most extraord
 \* 17 SPECIAL OPERATIONS that will test if you have what it takes to battle your way through space.  
 \* 40+ UPGRADES to build the ultimate RTS army! Choose between Defense Drones, Napalm Rockets, Ricocheting Blasts, Lethal Weapons and many more.  
 \* +7 UNITS to bring into battle and give your hero some extra firepower!  
-\* 8 SPECIAL WEAPONS to unleash hell on your enemies and keep expanding your tactics like space itself! Whatâs better than a well-placed missile? An orbital strike of 50 high-explosive missiles!  
-\* DEFEAT UNIQUE BOSSES in epic battles. They are green, mean, killing machines!!! Wellâ¦ some are machines and these aliens arenât greenâ¦ but theyâre all massive and determined to crush you. Suit up, Marines!
+\* 8 SPECIAL WEAPONS to unleash hell on your enemies and keep expanding your tactics like space itself! Whats better than a well-placed missile? An orbital strike of 50 high-explosive missiles!  
+\* DEFEAT UNIQUE BOSSES in epic battles. They are green, mean, killing machines!!! Well¦ some are machines and these aliens arent green¦ but theyre all massive and determined to crush you. Suit up, Marines!
 
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: Unlimited Money + Unlocked**
 

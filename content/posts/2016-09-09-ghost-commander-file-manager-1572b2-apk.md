@@ -10,12 +10,12 @@ draft: false
 
 Ghost Commander File Manager 1.57.2b2 APK For Android
 
-Ghost Commander is a dual panel file manager (as well as an FTP, SFTP, SMB, WebDAV, Reader, BOX, Dropbox!) That will allow you to manage your files locally or remotely, as well as adjust your system at the root. The main idea of ââthe user interface is classic: copy and move files from one panel to another. Simple.
+Ghost Commander is a dual panel file manager (as well as an FTP, SFTP, SMB, WebDAV, Reader, BOX, Dropbox!) That will allow you to manage your files locally or remotely, as well as adjust your system at the root. The main idea of the user interface is classic: copy and move files from one panel to another. Simple.
 
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 Download Ghost Commander File Manager 1.57.2b2 APK For Android
 ==============================================================

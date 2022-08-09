@@ -10,7 +10,7 @@ draft: false
 
 Wallpapers Ultra HD 4K Pro 4.1 APK For Android
 
-Free Wallpapers (Ultra HD Wallpaper and Daily Wallpapers) All cool wallpapers and daily update (UHD | Ultra HD) HD wallpapers. Search trendy categories (superhero wallpaper | nature wallpapers) and moreâ¦  
+Free Wallpapers (Ultra HD Wallpaper and Daily Wallpapers) All cool wallpapers and daily update (UHD | Ultra HD) HD wallpapers. Search trendy categories (superhero wallpaper | nature wallpapers) and more¦  
 **Characteristics**:  
 \* Set as wallpaper or share: you can set your wallpapers in the best categories like dark wallpapers, abstract wallpapers, nature wallpapers, flower wallpapers , etc. And you can share HD quality wallpapers with your friends.  
 \* Socialize: Join the wallpaper sharing network. Upload your own drawings or photos if you have a high quality resolution, they will be accepted quickly.  
@@ -19,7 +19,7 @@ Free Wallpapers (Ultra HD Wallpaper and Daily Wallpapers) All cool wallpapers an
 **Supported Android**  
 {4.0.3 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 Download Wallpapers Ultra HD 4K Pro 4.1 APK For Android
 =======================================================

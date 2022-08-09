@@ -14,7 +14,7 @@ Learn a language while having fun with Memrise. The more you have fun, the (fast
 
 You can learn Spanish ???????? Italian ???????? Korean ???????? Japanese ???????? Chinese, German ???????? Russian ???????? Arabic or even learn English ????????????????.
 
-\* Winner of the âBest Applicationâ of the Google Play I / O Award 2017  
+\* Winner of the Best Application of the Google Play I / O Award 2017  
 \* Choice of the Google Play team  
 \* Best developer  
 \* The best of 2016 - Personal development  
@@ -25,7 +25,7 @@ Do you want to be able to communicate with the rest of the world? Prepare for yo
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: Premium**
 

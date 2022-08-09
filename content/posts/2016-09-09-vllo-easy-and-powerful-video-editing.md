@@ -15,7 +15,7 @@ VLLO provides all the features you need. More than 1,000 elements are ready to a
 \* Trim, zoom, rotate, flip, rearrange your photos and videos with your fingertips.  
 \* More than 20 transitions are ready.  
 \* Choose from over 20 video filters to add a cinematic touch.  
-\* Speed ââup or put it in slo\*mo.  
+\* Speed up or put it in slo\*mo.  
 \* Play with over 70 sound effects.  
 \* Volume up / down, mute and fade in / out.  
 \* Record the video in the light SD mode or up to the brilliant UHD\*4K.  
@@ -24,7 +24,7 @@ VLLO provides all the features you need. More than 1,000 elements are ready to a
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 Download VLLO Easy and Powerful Video editing app Premium 5.6.0 APK For Android
 ===============================================================================

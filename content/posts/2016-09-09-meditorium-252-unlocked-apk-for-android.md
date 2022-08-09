@@ -15,7 +15,7 @@ Rather than getting bored in difficult 90-minute lectures on epidemiology and on
 **Supported Android**  
 {5.0 and UP}  
 **Supported Android Version**:-  
-Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 Download meditorium 2.5.2 Unlocked APK For Android
 ==================================================
@@ -23,7 +23,7 @@ Download meditorium 2.5.2 Unlocked APK For Android
 Additional Information
 ----------------------
 
-**Developer :** SchiLu Media UG (haftungsbeschrÃÂ¤nkt)
+**Developer :** SchiLu Media UG (haftungsbeschrÃ¤nkt)
 
 **Version :** 2.5.2
 

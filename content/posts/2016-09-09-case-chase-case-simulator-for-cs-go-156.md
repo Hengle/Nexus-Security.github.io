@@ -21,15 +21,15 @@ Click on the screen to earn money or win cash! Use upgrades to improve combos or
 Hack the system! Bot Kyle makes money when you are offline and Bot Derek when you are playing Case chase!
 
 \* Flappy Chicken  
-Tap the screen to steal the chicken and collect the money. Each coin has its values ââaccording to the number of improvements to buy. Reach the highest score!
+Tap the screen to steal the chicken and collect the money. Each coin has its values according to the number of improvements to buy. Reach the highest score!
 
 \* Bomb Defuse  
-Itâs the fastest way to make money in the game, but you need to have a higher level of player. Defuse the bomb before the time limit is reached. Each time you defuse a bomb you earn a reward. The higher the bomb level, the more money you will earn.
+Its the fastest way to make money in the game, but you need to have a higher level of player. Defuse the bomb before the time limit is reached. Each time you defuse a bomb you earn a reward. The higher the bomb level, the more money you will earn.
 
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 Download Case Chase Case Simulator for CS GO 1.5.6 APK APK For Android
 ======================================================================

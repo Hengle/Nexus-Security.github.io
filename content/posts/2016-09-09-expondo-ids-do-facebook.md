@@ -25,7 +25,7 @@ Os detalhes dos números são os seguintes:
 
 Portanto, se você visse esse link dentro de um dox, por exemplo, imediatamente diria que a vítima é Chris Hughes , com 5 anos no Facebook , o atacante é 4, o que leva a Mark Zuckerberg , e ele acessou esta página exatamente 10 / 22/2019 às 01:09 (UTC), que você conhece ao converter o carimbo de data / hora usando um site como ' ["); text-decoration-line: none;" target="\_blank">unixtimestamp.com](http://unixtimestamp.com/) '.
 
-Esta não é uma maneira garantida de descobrir quem postou seu perfil, porque muitas pessoas participarão com os números e deixarão seu nome de usuário direcionado ao seu perfil. Além disso, isso mostra a importância do motivo pelo qual todos precisamos de contas fantásticas para que, se você cometeu esse erro em uma investigação real, especialmente uma aplicação da lei em que um link de alguma forma saia, ele não retorne à sua identidade real.
+Esta não é uma maneira garantida de descobrir quem postou seu perfil, porque muitas pessoas participarão com os números e deixarão seu nome de usuário direcionado ao seu perfil. Além disso, isso mostra a importncia do motivo pelo qual todos precisamos de contas fantásticas para que, se você cometeu esse erro em uma investigação real, especialmente uma aplicação da lei em que um link de alguma forma saia, ele não retorne à sua identidade real.
 
 Isso é sempre algo a ser observado se você descobrir que suas próprias informações foram vazadas ou se estiver procurando algo para um cliente. No entanto, na minha experiência, isso não é tão comum de encontrar, porque, como mencionei, a maioria das pessoas postará os links sem os números. Portanto, o que podemos fazer por enquanto é apenas procurar quem postou esses tipos de links na internet.
 

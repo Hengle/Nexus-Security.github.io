@@ -1,14 +1,14 @@
 ---
-title: 'Food Truck Chef Cooking Games Delicious Diner 1.7.9 MOD (Unlimited Gold + Coins)Â  APK For Android'
+title: 'Food Truck Chef Cooking Games Delicious Diner 1.7.9 MOD (Unlimited Gold + Coins)  APK For Android'
 date: 2020-01-04T16:14:00+01:00
 draft: false
 ---
 
-![Food Truck Chef Cooking Games Delicious Diner 1.7.9 MOD (Unlimited Gold + Coins)Â  APK For Android](https://i1.wp.com/apkhome.net/wp-content/uploads/2020/01/Food-Truck-Chef-Cooking-Games-Delicious-Diner-1.7.9-MOD-Unlimited-Gold-Coins.png "Food Truck Chef Cooking Games Delicious Diner 1.7.9 MOD (Unlimited Gold + Coins)Â  APK For Android")
+![Food Truck Chef Cooking Games Delicious Diner 1.7.9 MOD (Unlimited Gold + Coins)  APK For Android](https://i1.wp.com/apkhome.net/wp-content/uploads/2020/01/Food-Truck-Chef-Cooking-Games-Delicious-Diner-1.7.9-MOD-Unlimited-Gold-Coins.png "Food Truck Chef Cooking Games Delicious Diner 1.7.9 MOD (Unlimited Gold + Coins)  APK For Android")
 
   
 
-Food Truck Chef Cooking Games Delicious Diner 1.7.9 MOD (Unlimited Gold + Coins)Â  APK For Android
+Food Truck Chef Cooking Games Delicious Diner 1.7.9 MOD (Unlimited Gold + Coins)  APK For Android
 
 Put on your apron and make delicious preparations such as Lorraine quiches, noodles, tacos, pies, pancakes, rum babas, bab macaroons, bacon, hot dogs, steaks, beef bourguignon , duck breast, sushi, seafood, scallops, raclettes, cheese soufflÃ©s; in short, everything that makes your mouth water! Grill delicious marshmallows and prepare a whole assortment of delicious macaroons, muffins and croissants.
 
@@ -21,11 +21,11 @@ Put on your apron and make delicious preparations such as Lorraine quiches, nood
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE:Unlimited Gold + Coins**
 
-Download Food Truck Chef Cooking Games Delicious Diner 1.7.9 MOD (Unlimited Gold + Coins)Â  APK For Android
+Download Food Truck Chef Cooking Games Delicious Diner 1.7.9 MOD (Unlimited Gold + Coins)  APK For Android
 ===========================================================================================================
 
 Additional Information

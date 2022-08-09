@@ -20,7 +20,7 @@ Auto Clicker pro Tapping 3.2.9 Paid APK For Android
 **Supported Android**  
 {7.0 and UP}  
 **Supported Android Version**:-  
-Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 Download Auto Clicker pro Tapping 3.2.9 Paid APK For Android
 ============================================================

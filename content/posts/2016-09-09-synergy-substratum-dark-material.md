@@ -14,7 +14,7 @@ Dark Material Samsung came out with over 80+ themed apps and a ton of system cha
 **Supported Android**  
 {7.0 and UP}  
 **Supported Android Version**:-  
-Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 Download Synergy Substratum Dark Material Samsung rs200 Patched APK For Android
 ===============================================================================

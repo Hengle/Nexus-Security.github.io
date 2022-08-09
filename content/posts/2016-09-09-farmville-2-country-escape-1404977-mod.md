@@ -1,14 +1,14 @@
 ---
-title: 'FarmVille 2 Country Escape 14.0.4977 MOD (Unlimited Keys)Â  APK For Android'
+title: 'FarmVille 2 Country Escape 14.0.4977 MOD (Unlimited Keys)  APK For Android'
 date: 2019-12-03T18:28:00+01:00
 draft: false
 ---
 
-![FarmVille 2 Country Escape 14.0.4977 MOD (Unlimited Keys)Â  APK For Android](https://i0.wp.com/apkhome.net/wp-content/uploads/2019/12/FarmVille-2-Country-Escape.png "FarmVille 2 Country Escape 14.0.4977 MOD (Unlimited Keys)Â  APK For Android")
+![FarmVille 2 Country Escape 14.0.4977 MOD (Unlimited Keys)  APK For Android](https://i0.wp.com/apkhome.net/wp-content/uploads/2019/12/FarmVille-2-Country-Escape.png "FarmVille 2 Country Escape 14.0.4977 MOD (Unlimited Keys)  APK For Android")
 
   
 
-FarmVille 2 Country Escape 14.0.4977 MOD (Unlimited Keys)Â  APK For Android
+FarmVille 2 Country Escape 14.0.4977 MOD (Unlimited Keys)  APK For Android
 
 Escape to the world of agriculture, friends and good times! Go on farm adventures to collect rare products and prepare new recipes! Pupil animals and grow your farm with your friends. Join an agricultural co\*op to trade and share, or play solo in Anonymous mode. You can play FarmVille wherever you want, whenever you want ... even when you have no internet connection. Best of all, the most popular farm game is free!  
 "FarmVille is back, and this time the game is transportable" \* TIME  
@@ -24,11 +24,11 @@ Escape to the world of agriculture, friends and good times! Go on farm adventure
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: Unlimited Keys**
 
-Download FarmVille 2 Country Escape 14.0.4977 MOD (Unlimited Keys)Â  APK For Android
+Download FarmVille 2 Country Escape 14.0.4977 MOD (Unlimited Keys)  APK For Android
 ====================================================================================
 
 Additional Information

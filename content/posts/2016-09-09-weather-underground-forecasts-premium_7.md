@@ -19,7 +19,7 @@ Weather Underground provides the most accurate and reliable hyper-local weather 
 **Supported Android**  
 {6.0 and UP}  
 **Supported Android Version**:-  
-Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 Download Weather Underground Forecasts Premium 6.1.1 APK For Android
 ====================================================================

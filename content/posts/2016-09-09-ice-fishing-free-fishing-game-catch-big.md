@@ -12,13 +12,13 @@ Ice Fishing Free fishing game Catch big fish 1.15 Hack MOD APK For Android
 
 Fishing is an excellent type of recreation and an opportunity to spend time with excitement! If in the shower you are a real fisherman and ready to test your skills, then the 3D ice fishing game is for you.  
 Wherever you are: in winter or in summer, you can always be on the snow-covered ice, among the beautiful winter landscapes.  
-This game is not only fishing, but a real competition for fishing. After all, go fishing on the Great Lakes in the United States or the Sea of ââOkhotsk, it is necessary to defeat their rivals - the fishermen.  
+This game is not only fishing, but a real competition for fishing. After all, go fishing on the Great Lakes in the United States or the Sea of Okhotsk, it is necessary to defeat their rivals - the fishermen.  
 Fishing for friends and will suit those who want to learn the habits of fish, their habitats, and depth of taste preferences, what the bait or lure line fishing best for catching a particular fish.
 
 **Supported Android**  
 {4.1 and UP}  
 Supported Android Version:-  
-Jelly Bean (4.1â"4.3.1) - KitKat (4.4â"4.4.4) - Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1)
+Jelly Bean (4.1"4.3.1) - KitKat (4.4"4.4.4) - Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1)
 
 Hack MOD Unlimited Money
 

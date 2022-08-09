@@ -1,32 +1,32 @@
 ---
-title: 'H.I.D.E. 0.28.16 MOD (Unlock all items)Â  APK For Android'
+title: 'H.I.D.E. 0.28.16 MOD (Unlock all items)  APK For Android'
 date: 2019-12-31T10:56:00+01:00
 draft: false
 ---
 
-![H.I.D.E. 0.28.16 MOD (Unlock all items)Â  APK For Android](https://i2.wp.com/apkhome.net/wp-content/uploads/2019/12/H.I.D.E.-0.28.16-MOD-Unlock-all-items.png "H.I.D.E. 0.28.16 MOD (Unlock all items)Â  APK For Android")
+![H.I.D.E. 0.28.16 MOD (Unlock all items)  APK For Android](https://i2.wp.com/apkhome.net/wp-content/uploads/2019/12/H.I.D.E.-0.28.16-MOD-Unlock-all-items.png "H.I.D.E. 0.28.16 MOD (Unlock all items)  APK For Android")
 
   
 
-H.I.D.E. 0.28.16 MOD (Unlock all items)Â  APK For Android
+H.I.D.E. 0.28.16 MOD (Unlock all items)  APK For Android
 
 Want to play hide and seek at the White House?  
 Install one of the best games in the genre of Prop Hunt
 
-ThuÂ  H.I.D.E.Â  Is an unusual 1 person multiplayer shooter. Not only soldiers or bandits came here, but hunters and accessories.
+Thu  H.I.D.E.  Is an unusual 1 person multiplayer shooter. Not only soldiers or bandits came here, but hunters and accessories.
 
-Prop Hunt or HIDE and SEEK has long since become a special genre that attracts players from all over the world. If you haven't played such games yet, then welcome toÂ  H.I.D.E.
+Prop Hunt or HIDE and SEEK has long since become a special genre that attracts players from all over the world. If you haven't played such games yet, then welcome to  H.I.D.E.
 
 The task of the hunter is to catch all the nasty accessories, and the task of the accessories is to hide so that the hunters cannot find and kill him.
 
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: Unlock all items**
 
-Download H.I.D.E. 0.28.16 MOD (Unlock all items)Â  APK For Android
+Download H.I.D.E. 0.28.16 MOD (Unlock all items)  APK For Android
 ==================================================================
 
 Additional Information

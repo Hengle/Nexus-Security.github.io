@@ -4,11 +4,11 @@ date: 2020-01-24T16:17:00+01:00
 draft: false
 ---
 
-![South Park Phone Destroyer Battle Card Game 4.4.5 MOD (Unlimited Attacks + License Bypass)Â  APK For Android](https://i0.wp.com/apkhome.net/wp-content/uploads/2020/01/South-Park-Phone-Destroyer-Battle-Card-Game-4.4.5-MOD-Unlimited-Attacks-License-Bypass.png "South Park Phone Destroyer Battle Card Game 4.4.5 MOD (Unlimited Attacks + License Bypass)Â  APK For Android")
+![South Park Phone Destroyer Battle Card Game 4.4.5 MOD (Unlimited Attacks + License Bypass)  APK For Android](https://i0.wp.com/apkhome.net/wp-content/uploads/2020/01/South-Park-Phone-Destroyer-Battle-Card-Game-4.4.5-MOD-Unlimited-Attacks-License-Bypass.png "South Park Phone Destroyer Battle Card Game 4.4.5 MOD (Unlimited Attacks + License Bypass)  APK For Android")
 
   
 
-South Park Phone Destroyer Battle Card Game 4.4.5 MOD (Unlimited Attacks + License Bypass)Â  APK For Android
+South Park Phone Destroyer Battle Card Game 4.4.5 MOD (Unlimited Attacks + License Bypass)  APK For Android
 
 All these hours spent on your phone have prepared you for this moment.  
 Fulfill your destiny and become ... THE ULTIMATE DESTROYER PHONE!  
@@ -26,11 +26,11 @@ Gather the ultimate team of cowboys, magicians, cyborgs and more, and get ready 
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: Unlimited Attacks + License Bypass**
 
-Download South Park Phone Destroyer Battle Card Game 4.4.5 MOD (Unlimited Attacks + License Bypass)Â  APK For Android
+Download South Park Phone Destroyer Battle Card Game 4.4.5 MOD (Unlimited Attacks + License Bypass)  APK For Android
 =====================================================================================================================
 
 Additional Information

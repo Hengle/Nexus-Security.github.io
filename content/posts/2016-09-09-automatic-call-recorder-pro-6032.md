@@ -10,12 +10,12 @@ draft: false
 
 Automatic Call Recorder Pro 6.03.2 Patched APK For Android
 
-Record any desired phone call and choose the calls you want to record. You can define which calls are registered and which are ignored. Listen to the recording, add notes and share it. Integration with Google Drive â¢ and Dropbox also allows you to save calls and sync them with the cloud. The integration of Google Drive works on Android versions 3.0 and above.
+Record any desired phone call and choose the calls you want to record. You can define which calls are registered and which are ignored. Listen to the recording, add notes and share it. Integration with Google Drive ¢ and Dropbox also allows you to save calls and sync them with the cloud. The integration of Google Drive works on Android versions 3.0 and above.
 
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 Download Automatic Call Recorder Pro 6.03.2 Patched APK For Android
 ===================================================================

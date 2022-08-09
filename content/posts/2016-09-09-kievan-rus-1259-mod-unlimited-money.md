@@ -10,16 +10,16 @@ draft: false
 
 Kievan Rus 1.2.59 MOD (Unlimited Money + Unlocked) APK For Android
 
-Kievan Rus âis a strategy game focused on political maneuvers. Here, war is only a tool for trade.
+Kievan Rus is a strategy game focused on political maneuvers. Here, war is only a tool for trade.
 
-This game lets you play as the ruler of Kievan Rus â, one of the most powerful states in the world at the time. The Middle Ages is a setting that is truly a treasure for any fan of strategy games. In the game, there are 35 states and barbarians, who have their own territory and their own resources.
+This game lets you play as the ruler of Kievan Rus , one of the most powerful states in the world at the time. The Middle Ages is a setting that is truly a treasure for any fan of strategy games. In the game, there are 35 states and barbarians, who have their own territory and their own resources.
 
 However, the sovereign's path to domination will not be a walk in the park. Prepare for deadly wars and behind-the-scenes politics - you will face the most powerful states in the gaming world, including England dominating the seas, the Balkan states (Bulgaria, Poland, Hungary, Croatia and Serbia) and the Arab State of Syria, with a huge army at its disposal. So you think the Roman Empire made great strides? Perhaps you prefer European states like France and Scotland? Or is it Byzantium that you consider a good example? Let them know that you are ready to go head-to-head and build your own empire, and that you are a dictator and strategist. Their goal is to advance their own civilization while preventing yours from doing so. Put your political foresight to the test and find out if you are good at strategy and diplomacy - lead your country through ages and eras.
 
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: Unlimited Money + Unlocked  
 **

@@ -15,7 +15,7 @@ A segurança sem fio é criada especificamente para impedir que usuários não a
   
 Hoje, várias residências e empresas operam e dependem da rede sem fio. O Wi-Fi é incrivelmente eficiente em manter os usuários conectados à Internet 24 horas por dia, todos os dias da semana. O benefício mencionado acima, associado ao fato de que ele vem sem uma confusão de cabos, torna a rede sem fio ainda mais atraente.  
   
-Há outro lado, no entanto, uma vez que os sinais Wi-Fi podem ser transmitidos além das paredes de uma casa ou empresa. Isso significa que o Wi-Fi é vulnerável a hackers; aumentar o fácil acesso de pessoas em casas vizinhas ou até de indivíduos em um estacionamento próximo. É aqui que entra a importância de garantir uma segurança sem fio forte.  
+Há outro lado, no entanto, uma vez que os sinais Wi-Fi podem ser transmitidos além das paredes de uma casa ou empresa. Isso significa que o Wi-Fi é vulnerável a hackers; aumentar o fácil acesso de pessoas em casas vizinhas ou até de indivíduos em um estacionamento próximo. É aqui que entra a importncia de garantir uma segurança sem fio forte.  
   
 Você pode estar se perguntando qual é o perigo, se é que algum, de outras pessoas acessando seu Wi-Fi. Bem, existem vários perigos para uma rede sem fio vulnerável. Por exemplo, os hackers poderão acessar informações pessoais, roubar sua identidade e usá-las contra você. Houve casos em que indivíduos foram presos por um crime que não cometeram via internet.  
   

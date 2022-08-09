@@ -14,12 +14,12 @@ Terrorist attack against a terrorist
 Welcome to the modern era of first person shooter and experience modern fps mobile action games with modern gun play online. A realistic shooter based on modern pistol action with incredible war scenes. Play this incredible counterattack and crisis shooter to become a perfect fps shooter with a fight against a terrorist and sniper skills. These are the best fps sharpshooter gun attack games through the ball strength game to counter the worst in the open world war. Instantly kill all terrorists in this fps shooter with any weapon or pistol used in the modern, multi-level first-person shooter mission game. They believe they are well qualified to survive the assault of the military. You are a sniper brave sniper killer on the island with commando sniper skills against modern war on terror. Hold your breath and pull the trigger on your pistols to become the ultimate in mobile combat commando shooters in this action-packed world war game.
 
 Are you a fan of good FPS shooters? Then there is good news for you.  
-We are ready to change the idea of ââfree shooter games to fps. Take part in the battlefield of free modern shooting games.
+We are ready to change the idea of free shooter games to fps. Take part in the battlefield of free modern shooting games.
 
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: Unlimited Money**
 

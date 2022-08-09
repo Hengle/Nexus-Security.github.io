@@ -25,7 +25,7 @@ Be careful, captain! This war zone is full of enemy mines and battleships. Battl
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: Unlimited Money**
 
@@ -35,7 +35,7 @@ Download Nuclear Submarine inc Indie Hardcore Simulator 2.0 MOD (Unlimited Money
 Additional Information
 ----------------------
 
-**Developer :** ÃÂÃÂ¾ÃÂ¼ÃÂ°ÃÂºÃÂ¸ÃÂ½ ÃÂ"ÃÂ¼ÃÂ¸Ã'ÂÃ'ÂÃÂ¸ÃÂ¹
+**Developer :** ÃÃ¾Ã¼Ã°ÃºÃ¸Ã½ Ã"Ã¼Ã¸Ã'Ã'Ã¸Ã¹
 
 **Version :** 2.0
 

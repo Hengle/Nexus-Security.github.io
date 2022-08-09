@@ -21,9 +21,9 @@ Gear.Club offers a full range of options for cars. Players can get, enhance and 
 For More Info
 
 **Supported Android**  
-{4.3Â and UP}  
+{4.3 and UP}  
 Supported Android Version:-  
-Jelly Bean (4.3â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) or UP
+Jelly Bean (4.3"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) or UP
 
 Download Gear.Club True Racing 1.12.3 APK + Data APK For Android
 ================================================================

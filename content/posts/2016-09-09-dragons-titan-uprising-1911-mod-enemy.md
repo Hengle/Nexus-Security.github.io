@@ -1,14 +1,14 @@
 ---
-title: 'Dragons Titan Uprising 1.9.11 MOD (The enemy does not attack)Â  APK For Android'
+title: 'Dragons Titan Uprising 1.9.11 MOD (The enemy does not attack)  APK For Android'
 date: 2019-11-30T09:42:00+01:00
 draft: false
 ---
 
-![Dragons Titan Uprising 1.9.11 MOD (The enemy does not attack)Â  APK For Android](https://i1.wp.com/apkhome.net/wp-content/uploads/2019/11/Dragons-Titan-Uprising.png "Dragons Titan Uprising 1.9.11 MOD (The enemy does not attack)Â  APK For Android")
+![Dragons Titan Uprising 1.9.11 MOD (The enemy does not attack)  APK For Android](https://i1.wp.com/apkhome.net/wp-content/uploads/2019/11/Dragons-Titan-Uprising.png "Dragons Titan Uprising 1.9.11 MOD (The enemy does not attack)  APK For Android")
 
   
 
-Dragons Titan Uprising 1.9.11 MOD (The enemy does not attack)Â  APK For Android
+Dragons Titan Uprising 1.9.11 MOD (The enemy does not attack)  APK For Android
 
 Become a 3-time series champion by joining Krokmou and Harold in their fight to save Beurk from the awful Dragon Root Company. In "The Dragon Titans Revolt," team up with other trainers and their dragon friends to regain control of the seas and skies!
 
@@ -26,11 +26,11 @@ Think strategy to compose the best combat teams from a hundred or so dragons! Co
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE : The enemy does not attack**
 
-Download Dragons Titan Uprising 1.9.11 MOD (The enemy does not attack)Â  APK For Android
+Download Dragons Titan Uprising 1.9.11 MOD (The enemy does not attack)  APK For Android
 ========================================================================================
 
 Additional Information

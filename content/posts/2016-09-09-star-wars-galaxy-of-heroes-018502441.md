@@ -10,12 +10,12 @@ draft: false
 
 Star Wars Galaxy of Heroes 0.18.502441 MOD (Unlimited Energy) APK For Android
 
-Live your Star Wars â¢ dreams by fighting with your favorite dark and clear heroes through iconic locations to become the master of the galaxy. Create and customize your dream team using characters from all eras, including new characters from Solo â¢: A Star Wars â¢ Story, Star Wars â¢: The Last Jedi â¢ and Rogue One â¢: A Star Wars â¢ Story. Engage in a turn-based RPG war, take on giant bosses, pilot legendary starships in space like the Millennium Falcon, and take your strategy to the next level!
+Live your Star Wars ¢ dreams by fighting with your favorite dark and clear heroes through iconic locations to become the master of the galaxy. Create and customize your dream team using characters from all eras, including new characters from Solo ¢: A Star Wars ¢ Story, Star Wars ¢: The Last Jedi ¢ and Rogue One ¢: A Star Wars ¢ Story. Engage in a turn-based RPG war, take on giant bosses, pilot legendary starships in space like the Millennium Falcon, and take your strategy to the next level!
 
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: Unlimited Energy  
 **

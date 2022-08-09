@@ -10,9 +10,9 @@ draft: false
 
 Real Cricket 17 2.7.5 Hack MOD APK + Data Unlimited Money APK For Android
 
-Real Cricket â¢ is here and there to stay! We have migrated to a whole new experience with Real Cricket â¢ 17! The most complete cricket game in the world!  
-For cricket fans all you there, the intensity of a real Cricket â¢ game, now on your mobile !!!  
-Welcome to the most authentic, complete and surreal cricket experience on Android - Real Cricket â¢ 17  
+Real Cricket ¢ is here and there to stay! We have migrated to a whole new experience with Real Cricket ¢ 17! The most complete cricket game in the world!  
+For cricket fans all you there, the intensity of a real Cricket ¢ game, now on your mobile !!!  
+Welcome to the most authentic, complete and surreal cricket experience on Android - Real Cricket ¢ 17  
 Just like next year - take charge of your favorite franchise and build a team from scratch!  
 Brand new mode test series complete with updates, classic white service charts and lunchtime tea breaks.  
 Enter the Mini World Cup Gala and bring back the trophy for your country!  
@@ -21,7 +21,7 @@ For the first time players can play historical scenarios with a unique level-bas
 **Supported Android**  
 {4.2 and UP}  
 Supported Android Version:-  
-Jelly Bean (4.2â"4.3.1) - KitKat (4.4â"4.4.4) - Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1)
+Jelly Bean (4.2"4.3.1) - KitKat (4.4"4.4.4) - Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1)
 
 Download Real Cricket 17 2.7.5 Hack MOD APK + Data Unlimited Money APK For Android
 ==================================================================================

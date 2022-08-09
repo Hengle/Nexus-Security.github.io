@@ -10,17 +10,17 @@ draft: false
 
 Real Racing 3 8.1.0 MOD (Unlock All) APK For Android
 
-Live the ultimate racing experience (Formula 1Â® included) everywhere, all the time! Real cars. Real opponents. This is the essence of motorsport. This is Real Racing 3.  
+Live the ultimate racing experience (Formula 1® included) everywhere, all the time! Real cars. Real opponents. This is the essence of motorsport. This is Real Racing 3.  
 Read on to find out more!  
 Real Racing 3 is an award-winning franchise that is revolutionizing mobile racing games.  
 The application offers in-app purchases. You can turn them off in your device settings.  
 This app may contain third-party content. Electronic Arts is not responsible for this content.  
-Downloaded more than 500 million times, Real Racing 3 offers licensed tracks, 40 circuits and 19 real-world sites, 43 cars at the start and more than 250 cars from manufacturers like Porsche, Bugatti, Chevrolet, Aston Martin and Audi, but also a real-time multiplayer mode, social rankings, a center dedicated to the Formula 1Â® Championship and Grand Prix â¢, Chronos, night races and Time Shifted Multiplayer â¢ technology (TSM) to pilot everywhere, against n anyone and anytime.
+Downloaded more than 500 million times, Real Racing 3 offers licensed tracks, 40 circuits and 19 real-world sites, 43 cars at the start and more than 250 cars from manufacturers like Porsche, Bugatti, Chevrolet, Aston Martin and Audi, but also a real-time multiplayer mode, social rankings, a center dedicated to the Formula 1® Championship and Grand Prix ¢, Chronos, night races and Time Shifted Multiplayer ¢ technology (TSM) to pilot everywhere, against n anyone and anytime.
 
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: Unlock All**
 

@@ -20,12 +20,12 @@ CUSTOMIZE EXTREME CARS
 Fill your garage with the models you've always dreamed of, designed by big names in the automotive industry: Ferrari, Lamborghini, McLaren, Pagani, Koenigsegg, Hennessey, etc. Then transform them using the most fabulous personalization system on mobile, from the Modshop and the Black Market: more than 2.5 million combinations are available. Your cars are waiting for you. Align them against your competitors and prove yourself.
 
 DRIVE WITHOUT TREMBLER, FOOT TO FLOOR  
-Speed ââthrough the streets of Blackridge, accelerate when jumping or to avoid debris, get into other cars, scrape the walls or roll at an open pace in the Nitro Zones. Use and abuse nitro and take your riding to the next level, with great adrenaline and drifts. On every street corner, it may be a new race that awaits you against the local clans ... or the neighborhood cops. In this city, everyone wants to be the fastest. Can you get ahead of all the pilots and command respect?
+Speed through the streets of Blackridge, accelerate when jumping or to avoid debris, get into other cars, scrape the walls or roll at an open pace in the Nitro Zones. Use and abuse nitro and take your riding to the next level, with great adrenaline and drifts. On every street corner, it may be a new race that awaits you against the local clans ... or the neighborhood cops. In this city, everyone wants to be the fastest. Can you get ahead of all the pilots and command respect?
 
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: China Unofficial**
 

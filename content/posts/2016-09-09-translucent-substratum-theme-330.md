@@ -16,7 +16,7 @@ For Android Pie, follow these instructions for installation if you have doubts a
 **Supported Android**  
 {7.0 and UP}  
 Supported Android Version:-  
-Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1)
+Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1)
 
 Download Translucent Substratum Theme 3.30 Patched APK For Android
 ==================================================================

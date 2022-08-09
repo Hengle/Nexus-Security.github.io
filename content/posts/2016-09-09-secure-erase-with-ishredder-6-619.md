@@ -10,7 +10,7 @@ draft: false
 
 Secure Erase with iShredder 6 6.1.9 Military Edition APK For Android
 
-With military level security, the iShredder â¢ data shredder (eraser) application which securely deletes data leaving it unrecoverable and protects malicious people.  
+With military level security, the iShredder ¢ data shredder (eraser) application which securely deletes data leaving it unrecoverable and protects malicious people.  
 **Characteristics:**  
 \* Certified deletion algorithms  
 \* Safely replace the free space (internal memory and sc card)  
@@ -23,7 +23,7 @@ With military level security, the iShredder â¢ data shredder (eraser) applic
 **Supported Android**  
 {4.1 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 Download Secure Erase with iShredder 6 6.1.9 Military Edition APK For Android
 =============================================================================

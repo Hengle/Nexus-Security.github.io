@@ -10,7 +10,7 @@ draft: false
 
 Speedtest by Ookla Premium 4.4.30 Lite APK For Android
 
-Use SpeedtestÂ® by OoklaÂ® for one-click Internet connection and speed and speed test â"â" accurate everywhere thanks to our large global network of servers.  
+Use Speedtest® by Ookla® for one-click Internet connection and speed and speed test "" accurate everywhere thanks to our large global network of servers.  
 **Characteristics:**  
 \* Discover your download, upload and ping  
 \* Real-time graphs show the consistency of connections  
@@ -22,7 +22,7 @@ Use SpeedtestÂ® by OoklaÂ® for one-click Internet connection and speed and s
 **Supported Android**  
 {Varies with device}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 Download Speedtest by Ookla Premium 4.4.30 Lite APK For Android
 ===============================================================

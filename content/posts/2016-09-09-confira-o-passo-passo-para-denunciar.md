@@ -21,7 +21,7 @@ Crimes na internet pedem atenção: colher provas e sabre agir é fundamental (R
 
 Escondidos sob o falso anonimato conferido pela internet, milhares de usuários utilizam todos os dias as redes sociais para espalhar conteúdo falso, ofensivo ou difamatório sobre pessoas específicas, figuras públicas, artistas, instituições privadas, grupos étnicos, religiosos etc.  
   
-Nesta semana, as vítimas foram dois paraenses: o casal Thaise Renata Marinho do Nascimento e José Rafael de Oliveira, que moram no bairro do Coqueiro, em Ananindeua, Região Metropolitana de Belém. A difamação ocorreu em grupos de aplicativo de mensagens instantâneas e redes sociais: nas postagens, os dois eram retratados como assaltantes, que teriam invadido recentemente uma loja na avenida Augusto Montenegro.  
+Nesta semana, as vítimas foram dois paraenses: o casal Thaise Renata Marinho do Nascimento e José Rafael de Oliveira, que moram no bairro do Coqueiro, em Ananindeua, Região Metropolitana de Belém. A difamação ocorreu em grupos de aplicativo de mensagens instantneas e redes sociais: nas postagens, os dois eram retratados como assaltantes, que teriam invadido recentemente uma loja na avenida Augusto Montenegro.  
   
 MENTIRAS  
   

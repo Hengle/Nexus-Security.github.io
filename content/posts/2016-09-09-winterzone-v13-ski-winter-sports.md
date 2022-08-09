@@ -20,7 +20,7 @@ nineteen substratum onehundredfourteen Patched APK For Android
 **Supported Android**  
 {7.0 and UP}  
 Supported Android Version:-  
-Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1)
+Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1)
 
 Download nineteen substratum onehundredfourteen Patched APK For Android
 =======================================================================
@@ -28,7 +28,7 @@ Download nineteen substratum onehundredfourteen Patched APK For Android
 Additional Information
 ----------------------
 
-**Developer :** vllevo3 â design
+**Developer :** vllevo3  design
 
 **Version :** onehundredfourteen
 

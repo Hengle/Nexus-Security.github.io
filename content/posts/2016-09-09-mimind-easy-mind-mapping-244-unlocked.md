@@ -14,14 +14,14 @@ miMind is a powerful tool for organizing your thoughts, outlining plans and shar
 **Characteristics:**  
 \* User-friendly, intuitive, easy to use / navigate and unique interfaces,  
 \* User interface optimized for smartphones and tablets, simple, flexible.  
-\* Export to many formats: images (jpeg / jpg, png, tga, bmp / ââbitmap), pdf, text, xml files  
+\* Export to many formats: images (jpeg / jpg, png, tga, bmp / bitmap), pdf, text, xml files  
 \* No advertisement / advertisement, no registration required  
 \* Multi-level, logical and hierarchical frameworks, numerous layout diagrams  
 \* Rich text formatting  
 **Supported Android**  
 {5.0 and UP}  
 **Supported Android Version**:-  
-Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 Download miMind Easy Mind Mapping 2.44 Unlocked APK For Android
 ===============================================================

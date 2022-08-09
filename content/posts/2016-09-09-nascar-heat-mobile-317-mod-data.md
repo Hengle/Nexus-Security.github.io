@@ -18,18 +18,18 @@ START YOUR ENGINES
 Trust your vehicle and it will never betray you on the track. Bet everything on your vehicle & steering abilities in the next competition and take the season by storm! Race your way across all 23 Monster Energy NASCAR Cup Series tracks in America and walk the road of a champ.
 
 BUILD YOUR OWN EMPIRE  
-NASCAR isnât just about winning a race; building a successful franchise is just as important. How you build your Fan Zone will directly affect your popularity, ability to upgrade cars, and competitiveness on the track. Think wisely before recklessly constructing your Fan Zone!
+NASCAR isnt just about winning a race; building a successful franchise is just as important. How you build your Fan Zone will directly affect your popularity, ability to upgrade cars, and competitiveness on the track. Think wisely before recklessly constructing your Fan Zone!
 
 UPGRADE, FINETUNE, AND DECK OUT  
 You and your vehicle will need to adapt and upgrade as you race across America. Your garage will help you prepare for your next battle. Select the most suitable upgrades for your next race to ensure a quick and easy victory!
 
 RACE AS A LEGEND  
-Ever wanted to race as Chase Elliott, Kyle Busch, or Joey Logano? Youâve come to the right place. Race as your favorite driver and build your own racing team in NASCAR Heat Mobile. Relive the glorious moments and dash your way through the finish line as one of the greatest drivers of all-time!
+Ever wanted to race as Chase Elliott, Kyle Busch, or Joey Logano? Youve come to the right place. Race as your favorite driver and build your own racing team in NASCAR Heat Mobile. Relive the glorious moments and dash your way through the finish line as one of the greatest drivers of all-time!
 
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: Unlimited Money**
 

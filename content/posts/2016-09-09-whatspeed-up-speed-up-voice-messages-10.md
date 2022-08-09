@@ -11,11 +11,11 @@ draft: false
 WhatSpeed Up Speed Up Voice Messages 1.0 APK For Android
 
 WhatSpeed is a powerful application that allows you to speed up WhatsApp voice messages by playing them with different reading speeds. You save time by listening to the shorter version of the voice message.  
-You can listen to the voice message from WhatsApp without showing that you have read the voice message. You can use WhatSpeed Up not only for WhatsApp but also for other applications that allow file sharing like Telegramâ¦ etc.  
+You can listen to the voice message from WhatsApp without showing that you have read the voice message. You can use WhatSpeed Up not only for WhatsApp but also for other applications that allow file sharing like Telegram¦ etc.  
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 Download WhatSpeed Up Speed Up Voice Messages 1.0 APK For Android
 =================================================================

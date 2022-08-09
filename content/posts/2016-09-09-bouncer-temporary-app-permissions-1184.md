@@ -18,7 +18,7 @@ Bouncer is designed for single permissions, not for permissions where you only w
 **Supported Android**  
 {7.0 and UP}  
 **Supported Android Version**:-  
-Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 Download Bouncer Temporary App Permissions 1.18.4 Paid APK For Android
 ======================================================================

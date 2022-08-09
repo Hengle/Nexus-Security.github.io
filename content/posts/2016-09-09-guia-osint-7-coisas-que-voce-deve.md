@@ -47,7 +47,7 @@ Basta clicar nos cabeçalhos das colunas Contagem de gostos e Contagem de c
 
 ![](https://miro.medium.com/max/624/1*zY_Z9odL59ykcn-2aE15xg.png)
 
-3. Alterações no número de comentários e curtidas ao longo do tempo. Pode ser usado para ver a dinâmica do crescimento da popularidade de um perfil. Ou sua erosão, se o usuário costumava ser um Instagrammer pesado, mas, por algum motivo (às vezes vale a pena pesquisar), parava de postar com tanta frequência. Bem, a tendência de Jimmy é definitivamente o crescimento!
+3. Alterações no número de comentários e curtidas ao longo do tempo. Pode ser usado para ver a dinmica do crescimento da popularidade de um perfil. Ou sua erosão, se o usuário costumava ser um Instagrammer pesado, mas, por algum motivo (às vezes vale a pena pesquisar), parava de postar com tanta frequência. Bem, a tendência de Jimmy é definitivamente o crescimento!
 
 ![](https://miro.medium.com/max/60/1*s3BV7Zl_EoNCjJgTHMjhFA.png?q=20)
 

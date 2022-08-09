@@ -20,12 +20,12 @@ Clash of Lords 2 is a strategy game with fun and innovative twists on the genre.
 **Supported Android**  
 {2.3 and UP}  
 Supported Android Version:-  
-Gingerbread (2.3â"2.3.7)- Honeycomb (3.0â"3.2.6)- Ice Cream Sandwich (4.0â"4.0.4)- Jelly Bean (4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) or UP
+Gingerbread (2.3"2.3.7)- Honeycomb (3.0"3.2.6)- Ice Cream Sandwich (4.0"4.0.4)- Jelly Bean (4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) or UP
 
 Download Clash of Lords 2 Guild Brawl 1.0.247 FULL APK + Data APK For Android
 =============================================================================
 
-**Â **
+** **
 
 **OBB**
 

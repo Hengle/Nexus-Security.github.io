@@ -15,12 +15,12 @@ File Manager + is a simple and powerful file explorer for Android devices. It's 
 \* Main storage / SD card / USB OTG: you can manage all files and folders on your internal and external storage.  
 \* Downloads / Images / Audio / Videos / Documents / New files: Your files and folders are automatically sorted by their file types and characteristics so that you can easily find exactly the file you are looking for.  
 \* Applications: you can view and manage all the applications installed on your local device.  
-\* Cloud / Remote: you can access your cloud storage and also remote / shared storage like the NAS and the FTP server. (Cloud storage: Google Drive â¢, OneDrive, Dropbox, Box and Yandex)  
+\* Cloud / Remote: you can access your cloud storage and also remote / shared storage like the NAS and the FTP server. (Cloud storage: Google Drive ¢, OneDrive, Dropbox, Box and Yandex)  
 \* Access from PC: you can access the storage of your Android device from the PC to manage files on your local Android device using FTP (File Transfer Protocol).  
 **Supported Android**  
 {4.0.3 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 Download File Manager Premium 2.3.7 APK For Android
 ===================================================

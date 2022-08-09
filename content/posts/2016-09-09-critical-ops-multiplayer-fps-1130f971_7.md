@@ -1,14 +1,14 @@
 ---
-title: 'Critical Ops Multiplayer FPS 1.13.0.f971 APK + MOD (Mod Radar)Â  APK For Android'
+title: 'Critical Ops Multiplayer FPS 1.13.0.f971 APK + MOD (Mod Radar)  APK For Android'
 date: 2020-01-08T05:56:00+01:00
 draft: false
 ---
 
-![Critical Ops Multiplayer FPS 1.13.0.f971 APK + MOD (Mod Radar)Â  APK For Android](https://i1.wp.com/apkhome.net/wp-content/uploads/2020/01/Critical-Ops-Multiplayer-FPS-1.13.0.f971-APK-MOD-Mod-Radar.png "Critical Ops Multiplayer FPS 1.13.0.f971 APK + MOD (Mod Radar)Â  APK For Android")
+![Critical Ops Multiplayer FPS 1.13.0.f971 APK + MOD (Mod Radar)  APK For Android](https://i1.wp.com/apkhome.net/wp-content/uploads/2020/01/Critical-Ops-Multiplayer-FPS-1.13.0.f971-APK-MOD-Mod-Radar.png "Critical Ops Multiplayer FPS 1.13.0.f971 APK + MOD (Mod Radar)  APK For Android")
 
   
 
-Critical Ops Multiplayer FPS 1.13.0.f971 APK + MOD (Mod Radar)Â  APK For Android
+Critical Ops Multiplayer FPS 1.13.0.f971 APK + MOD (Mod Radar)  APK For Android
 
 Critical Ops is a 3D MULTIPLAYER FPS currently in development on mobile. Discover a concentrate of action, where TACTICAL reflexes and skills are the key to success.
 
@@ -21,11 +21,11 @@ The result will depend only on your skills and your tactical sense. The game doe
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: Mod Radar**
 
-Download Critical Ops Multiplayer FPS 1.13.0.f971 APK + MOD (Mod Radar)Â  APK For Android
+Download Critical Ops Multiplayer FPS 1.13.0.f971 APK + MOD (Mod Radar)  APK For Android
 =========================================================================================
 
 **Original version**

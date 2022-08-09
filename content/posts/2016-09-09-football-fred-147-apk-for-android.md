@@ -13,12 +13,12 @@ Football Fred 1.47 APK For Android
 Join Fred's quest to create the perfect PRO football team and conquer all championships - from your backyard to the far reaches of the world!  
 Enjoy a complete football experience with a super simple one-finger command.  
 Take on exciting challenges and win unique rewards. Play 3 vs 3, 7 vs 7, showdown penalties, freestyle challenges and more! Be aware and ready, events are open ocasionally and are limited in time.  
-or perfect strangers. Â¡It can be fun too! Participate in multi-player tournaments against anyone in the world with our asynchronous PVP matches.
+or perfect strangers. ¡It can be fun too! Participate in multi-player tournaments against anyone in the world with our asynchronous PVP matches.
 
 **Supported Android**  
 {4.4 and UP}  
 Supported Android Version:-  
-KitKat (4.4â"4.4.4) - Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1)
+KitKat (4.4"4.4.4) - Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1)
 
 Download Football Fred 1.47 APK For Android
 ===========================================

@@ -11,12 +11,12 @@ draft: false
 Money Pro Personal Finance & Expense Tracker 2.3.0 Unlocked APK For Android
 
 Track expenses, budget planner and account manager \* find them all in one application.  
-Money ProÂ® is ideal for tracking personal expenses, family budgets and even corporate financial management. The application exists since 2010 on iOS / Mac (over 2.5 million downloads worldwide) and is now available on Android / Windows.
+Money Pro® is ideal for tracking personal expenses, family budgets and even corporate financial management. The application exists since 2010 on iOS / Mac (over 2.5 million downloads worldwide) and is now available on Android / Windows.
 
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 Download Money Pro Personal Finance & Expense Tracker 2.3.0 Unlocked APK For Android
 ====================================================================================

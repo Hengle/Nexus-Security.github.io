@@ -12,12 +12,12 @@ Doomsday Clicker 1.9.21 MOD (Unlimited Money) APK For Android
 
 Press the red button to DESTROY THE WORLD, and take advantage of the apocalypse!
 
-You've spent years developing technology to deal with the destruction of the planet, and Doomsday survivors will have no choice but to turn to YOU ââ- their last chance, their savior, their SUPREME LEADER ! Tap the buttons to build your underground shelter, then tap again to expand it with luxurious facilities and upgrades. The larger your shelter, the more people you can accommodate in it, and the more money you will make. Keep touching to increase your profits until you reach astronomical sums!
+You've spent years developing technology to deal with the destruction of the planet, and Doomsday survivors will have no choice but to turn to YOU - their last chance, their savior, their SUPREME LEADER ! Tap the buttons to build your underground shelter, then tap again to expand it with luxurious facilities and upgrades. The larger your shelter, the more people you can accommodate in it, and the more money you will make. Keep touching to increase your profits until you reach astronomical sums!
 
 Doomsday Clicker is the ultimate destruction game: meet a host of crazy characters before destroying them all!
 
 **Features:**  
-\* Collect bonuses when âunwantedâ visitors knock on the door of your shelter  
+\* Collect bonuses when unwanted visitors knock on the door of your shelter  
 \* Discover tons of incongruous surprises!  
 \* Watch the numbers grow again and again!  
 \* Visit the SUPERCHARGEUR, a wheel of fortune that offers you temporary productivity gains!  
@@ -28,7 +28,7 @@ Doomsday Clicker is the ultimate destruction game: meet a host of crazy characte
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: Unlimited Money**
 

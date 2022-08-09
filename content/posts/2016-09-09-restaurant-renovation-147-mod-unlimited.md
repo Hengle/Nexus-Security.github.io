@@ -14,7 +14,7 @@ Jessie's uncle, Bobby, is one of the best chefs in the world. Due to poor manage
 
 Practice your cooking techniques and management skills. Colorful and transparent match-3 levels to renovate and decorate the restaurant. What styles of decoration do you like? It's up to you!
 
-We are innovating a new match-3 gameplay ---- Paper Planeâï¸. Make a square of four, and they will turn into a paper plane and match a paper plane with tiles of the same color will add layers to it. You will love this gameplay when you configure them, it's really amazing! ????
+We are innovating a new match-3 gameplay ---- Paper Planeï¸. Make a square of four, and they will turn into a paper plane and match a paper plane with tiles of the same color will add layers to it. You will love this gameplay when you configure them, it's really amazing! ????
 
 **Features:**  
 \* Game completely free to play;  
@@ -26,7 +26,7 @@ We are innovating a new match-3 gameplay ---- Paper Planeâï¸. Make a sq
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: Unlimited Stars**
 

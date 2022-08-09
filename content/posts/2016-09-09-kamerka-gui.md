@@ -256,7 +256,7 @@ Medical
 "operamed":"Operamed",  
 "early_sense":"http.favicon.hash:-639764351",  
 "tunstall":"http.html:'Tunstall'",  
-"clini_net":"http.html:'CliniNetÂ®'",  
+"clini_net":"http.html:'CliniNet®'",  
 "intelesens":"title:'zensoronline)) - online monitoring'",  
 "kb_port":"http.html:'KbPort'",  
 "nursecall_message_service":"http.title:'N.M.S. - Nursecall Message Service'",  

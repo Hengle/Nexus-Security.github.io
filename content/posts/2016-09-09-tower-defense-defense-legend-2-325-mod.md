@@ -15,16 +15,16 @@ Tower defense - Defense legends 2 will bring a lot of fun and interesting things
 
 **features:**  
 Tower defense-defense legends 2 updated new weapons decisive in the fight, bringing the difference to the tower defense game (TD).  
-\* LDC â" 055: combinations of explosives support in situations large number of enemy troops.  
-\* UXO â" W: sound waves bombs with great power create sound waves widely to destroy the enemy on a large scale.  
-\* Ice â" age: with the ability to freeze all enemies it scans in the path in a certain time period.  
+\* LDC " 055: combinations of explosives support in situations large number of enemy troops.  
+\* UXO " W: sound waves bombs with great power create sound waves widely to destroy the enemy on a large scale.  
+\* Ice " age: with the ability to freeze all enemies it scans in the path in a certain time period.  
 \* BF1: BF1 with 5 combat planes carrying a lots of bombs is the fear of the enemy.  
 \* Hellfire Area: fire from the hell will destroy all enemies on the way they across.
 
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: Unlimited Money**
 

@@ -10,7 +10,7 @@ draft: false
 
 Cool Q Launcher for Android 10 launcher UI theme 5.2 Prime APK For Android
 
-Cool Q Launcher is a cool Android â¢ 10 launcher style with lots of great features, cool themes, beautiful wallpapers; Cool Q Launcher also offers many options to configure your phone the way you want.  
+Cool Q Launcher is a cool Android ¢ 10 launcher style with lots of great features, cool themes, beautiful wallpapers; Cool Q Launcher also offers many options to configure your phone the way you want.  
 **Characteristics:**  
 \* 4 drawers: horizontal, vertical, category or list drawer  
 \* 9 gestures: swipe gesture, pinch gesture, two-finger gesture  
@@ -24,7 +24,7 @@ Cool Q Launcher is a cool Android â¢ 10 launcher style with lots of great fe
 **Supported Android**  
 {4.1 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 Download Cool Q Launcher for Android 10 launcher UI theme 5.2 Prime APK For Android
 ===================================================================================

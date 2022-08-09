@@ -1,14 +1,14 @@
 ---
-title: 'Dash Quest 2.9.12 MOD (Unlimited Money + Skill)Â  APK For Android'
+title: 'Dash Quest 2.9.12 MOD (Unlimited Money + Skill)  APK For Android'
 date: 2019-12-29T18:00:00+01:00
 draft: false
 ---
 
-![Dash Quest 2.9.12 MOD (Unlimited Money + Skill)Â  APK For Android](https://i1.wp.com/apkhome.net/wp-content/uploads/2019/12/Dash-Quest-2.9.12-MOD-Unlimited-Money-Skill.png "Dash Quest 2.9.12 MOD (Unlimited Money + Skill)Â  APK For Android")
+![Dash Quest 2.9.12 MOD (Unlimited Money + Skill)  APK For Android](https://i1.wp.com/apkhome.net/wp-content/uploads/2019/12/Dash-Quest-2.9.12-MOD-Unlimited-Money-Skill.png "Dash Quest 2.9.12 MOD (Unlimited Money + Skill)  APK For Android")
 
   
 
-Dash Quest 2.9.12 MOD (Unlimited Money + Skill)Â  APK For Android
+Dash Quest 2.9.12 MOD (Unlimited Money + Skill)  APK For Android
 
 Fantastic action and endless runner collide with exciting RPG elements in this incredibly addictive and retro-inspired adventure game! Race through hordes of enemies to achieve epic boss fights! Customize and improve your character with equipment, spells, skills, items and animals! Complete daily challenges for Legendary Gear and other rewards!
 
@@ -24,11 +24,11 @@ Fantastic action and endless runner collide with exciting RPG elements in this i
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: Unlimited Money + Skill**
 
-Download Dash Quest 2.9.12 MOD (Unlimited Money + Skill)Â  APK For Android
+Download Dash Quest 2.9.12 MOD (Unlimited Money + Skill)  APK For Android
 ==========================================================================
 
 Additional Information

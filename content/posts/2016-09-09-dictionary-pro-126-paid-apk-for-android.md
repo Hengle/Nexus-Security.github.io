@@ -20,7 +20,7 @@ Dictionary Pro is the premium version of the Free Dictionary app, with offline d
 **Supported Android**  
 {5.0 and UP}  
 **Supported Android Version**:-  
-Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 Download Dictionary Pro 12.6 Paid APK For Android
 =================================================
@@ -28,7 +28,7 @@ Download Dictionary Pro 12.6 Paid APK For Android
 Additional Information
 ----------------------
 
-**Developer :** TheFreeDictionary.com Ã¢ÂÂ" Farlex
+**Developer :** TheFreeDictionary.com Ã¢" Farlex
 
 **Version :** 12.6
 

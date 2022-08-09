@@ -12,14 +12,14 @@ Steven Seagals Archipelago Survival 0.0.196 MOD (A lot of gold coins + More) APK
 
 The legendary action hero takes on the next task - but this time, he won't be able to win without your help! Together, you can discover all the secrets of the archipelago lost in the ocean and save our world from the deadly threat.
 
-Steven Seagal's Survival Archipelago is an exciting new survival game with advanced RPG elements. Find yourself on âparadiseâ tropical islands, where powerful secret societies and powerful terrorist organizations are conducting experiments that can radically change the history of humanity. Stand by their side with a special agent, known as Mr. S, and stop the impending global catastrophe!
+Steven Seagal's Survival Archipelago is an exciting new survival game with advanced RPG elements. Find yourself on paradise tropical islands, where powerful secret societies and powerful terrorist organizations are conducting experiments that can radically change the history of humanity. Stand by their side with a special agent, known as Mr. S, and stop the impending global catastrophe!
 
 Steven Seagal's Survival archipelago is based on classic and ancestral mechanisms of survival games. Here you will have to explore the territory, seek resources, make weapons and equipment, build and strengthen the base, engage in intense battles with various enemies - from traditional zombies to unique mutant bosses with superpowers. Your survival is in your hands.
 
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: A lot of gold coins + More**
 

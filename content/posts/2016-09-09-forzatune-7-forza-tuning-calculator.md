@@ -14,14 +14,14 @@ Find out how easy and rewarding it is to adjust your own routes with ForzaTune. 
 **Characteristics:**  
 \* Numerous setting options, including standard (dry), drift, drag, rain, rally and all-terrain.  
 \* Aero recommendations adapted to each runway in Forza 7.  
-\* Speed ââcalculator to keep your car in the power band when performing major upgrades.  
+\* Speed calculator to keep your car in the power band when performing major upgrades.  
 \* Ability to quickly record, search and update songs for other tracks or construction types.  
 \* Flexible support for metric and imperial units.  
 \* Free tutorial videos and link to our driver training programs.  
 **Supported Android**  
 {4.4 and UP}  
 **Supported Android Version**:-  
-KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 Download ForzaTune 7 Forza Tuning Calculator 3.3.10 Paid APK For Android
 ========================================================================

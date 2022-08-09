@@ -21,7 +21,7 @@ Packed with exciting and fast-paced combat strategy, Clash Castle is a game of e
 **Supported Android**  
 {4.1 and UP}  
 Supported Android Version:-  
-Jelly Bean (4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) or UP
+Jelly Bean (4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) or UP
 
 Download Castle Clash 1.3.7 APK + Data APK For Android
 ======================================================

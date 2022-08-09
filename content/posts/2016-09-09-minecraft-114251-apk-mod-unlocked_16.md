@@ -1,14 +1,14 @@
 ---
-title: 'Minecraft 1.14.2.51 APK + MOD (Unlocked + Immortality)Â  APK For Android'
+title: 'Minecraft 1.14.2.51 APK + MOD (Unlocked + Immortality)  APK For Android'
 date: 2020-01-16T09:56:00+01:00
 draft: false
 ---
 
-![Minecraft 1.14.2.51 APK + MOD (Unlocked + Immortality)Â  APK For Android](https://i0.wp.com/apkhome.net/wp-content/uploads/2020/01/Minecraft-1.14.2.51-APK-MOD-Unlocked-Immortality.png "Minecraft 1.14.2.51 APK + MOD (Unlocked + Immortality)Â  APK For Android")
+![Minecraft 1.14.2.51 APK + MOD (Unlocked + Immortality)  APK For Android](https://i0.wp.com/apkhome.net/wp-content/uploads/2020/01/Minecraft-1.14.2.51-APK-MOD-Unlocked-Immortality.png "Minecraft 1.14.2.51 APK + MOD (Unlocked + Immortality)  APK For Android")
 
   
 
-Minecraft 1.14.2.51 APK + MOD (Unlocked + Immortality)Â  APK For Android
+Minecraft 1.14.2.51 APK + MOD (Unlocked + Immortality)  APK For Android
 
 Explore endless worlds and create without limits, from a makeshift shelter to the most fabulous of castles. Play in Creative mode with unlimited resources, or dig to the center of the Earth to craft weapons and armor to defeat dangerous creatures in Survival mode. Crafter, create and explore alone or with friends, on mobile as on Windows 10.
 
@@ -25,11 +25,11 @@ Realms - Find up to 10 friends across all platforms, whenever you want, wherever
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: Unlocked + Immortality**
 
-Download Minecraft 1.14.2.51 APK + MOD (Unlocked + Immortality)Â  APK For Android
+Download Minecraft 1.14.2.51 APK + MOD (Unlocked + Immortality)  APK For Android
 =================================================================================
 
 **Original version**

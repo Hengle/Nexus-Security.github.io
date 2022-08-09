@@ -10,7 +10,7 @@ draft: false
 
 Hidden City Hidden Object Adventure 1.32.3200 MOD (Unlimited Money) APK For Android
 
-Get ready to embark on an incredible journey with Hidden CityÂ®!
+Get ready to embark on an incredible journey with Hidden City®!
 
 A strange city is materializing in every corner of the planet. Is it the reality, an illusion ... or a simple hoax? While your detective agency collects as much information as possible, your friend is drawn to the heart of this ghost town by a black mist like nothingness. Fierce determined to help him, you enter your turn in this spectral city, where magic, witchcraft and science intertwine ... where reality joins the imagination. In the unfathomable depths of this unholy place populated by evil creatures and beings with supernatural powers spreads a dark smoke that conceals sibylline artifacts, unmentionable secrets and extreme dangers.
 
@@ -27,7 +27,7 @@ A strange city is materializing in every corner of the planet. Is it the reality
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: Unlimited Money**
 

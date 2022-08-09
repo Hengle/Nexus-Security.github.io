@@ -10,7 +10,7 @@ draft: false
 
 Eternium 1.4.43 MOD (Money + Rubies) APK For Android
 
-Eternium is an incredibly beautiful and captivating Hack ack n âSlash that will recall the great classics of the genre.
+Eternium is an incredibly beautiful and captivating Hack ack n Slash that will recall the great classics of the genre.
 
 It distinguishes itself from other titles of this style by its intuitive movements, by its system of gestures of attacks and by the great reception which it reserves for free players.
 
@@ -20,12 +20,12 @@ Casting spells with signs is simple and rewarding. Tactile movement is more natu
 
 The game can be played for free, as over 90% of our players do. Purchases are optional. Gems, the main currency of the game, can be earned by defeating monsters and completing quests. The game has no restrictive energy or stamina systems. All the best things are achieved by playing.
 
-Eternium was launched in 2014, and the game has since been improved by the original development team. Through years of polishing and feedback from millions of players, its quality has always improved. Today itâs one of the top rated games everywhere.
+Eternium was launched in 2014, and the game has since been improved by the original development team. Through years of polishing and feedback from millions of players, its quality has always improved. Today its one of the top rated games everywhere.
 
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: Money + Rubies**
 

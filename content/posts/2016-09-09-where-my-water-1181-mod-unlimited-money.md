@@ -14,7 +14,7 @@ Check out the award-winning GAME OF THE YEAR puzzle!
 
 Help Swampy by guiding the water to his broken shower. Each level is an exciting puzzle based on the laws of physics and with wonderfully realistic mechanics. Cross the mud to guide fresh water, dirty water, toxic water, steam and mud in increasingly difficult scenarios! Every drop counts!  
 \* Original stories and characters: play in 4 unique stories with Swampy, Allie, Cranky and the Mystery Duck. In all, more than 500 exciting puzzles!  
-\* Innovative mechanics: see water in various forms and use your creativity to solve puzzles. Itâs totally stimulating!  
+\* Innovative mechanics: see water in various forms and use your creativity to solve puzzles. Its totally stimulating!  
 \* Collectibles, challenges and bonus levels: collect special items designed for a particular character and take on cool challenges to unlock bonus levels! Complete each level with three ducks for bragging rights!
 
 THE STORY OF SWAMPY  
@@ -26,7 +26,7 @@ Allie is the most creative alligator in the sewer. Her eccentric spirit and arti
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: Unlimited Money**
 

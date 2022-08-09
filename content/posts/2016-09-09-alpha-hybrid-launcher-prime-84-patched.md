@@ -14,16 +14,16 @@ like simplicity and class? , do you like to try new interfaces with incredible c
 **Characteristics:**  
 \* Live wallpaper themes - It's time to make your friends  
 \* Premium futuristic themes and wallpapers  
-\* Alpha DIY customization function (â¤ï¸ Do it yourself)  
+\* Alpha DIY customization function (¤ï¸ Do it yourself)  
 \* Integrated telephone dialer  
-\* Phone memory cleaner (â¡ï¸Phone Booster)  
+\* Phone memory cleaner (¡ï¸Phone Booster)  
 \* Simple calendar and weather widget notifications  
 \* Lock apps with fingerprint or 4-digit pin  
 \* Support for unread notification badges  
 **Supported Android**  
 {5.0 and UP}  
 **Supported Android Version**:-  
-Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 Download Alpha Hybrid Launcher Prime 8.4 Patched APK For Android
 ================================================================

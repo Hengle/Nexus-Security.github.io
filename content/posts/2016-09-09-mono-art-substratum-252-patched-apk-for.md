@@ -16,7 +16,7 @@ AOSP applications such as Clock, Messaging, Gallery, Contacts, and Dialer may or
 **Supported Android**  
 {7.0 and UP}  
 Supported Android Version:-  
-Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1)
+Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1)
 
 Download Mono Art substratum 25.2 Patched APK For Android
 =========================================================
@@ -24,7 +24,7 @@ Download Mono Art substratum 25.2 Patched APK For Android
 Additional Information
 ----------------------
 
-**Developer :** llevo3 â design
+**Developer :** llevo3  design
 
 **Version :** 25.2
 

@@ -16,7 +16,7 @@ WHAT IS THE GAME?
 Learn how to tip knives like a pro to make great combos never to be missed! Become a real master of 7 different places and get a superb collection of famous fantasy knives, swords, axes and legends!
 
 WHO PLAYS?  
-It is a game for those who love knives and thrills! Itâs a game for the strong and the confident. Be on the razor's edge, take risks and hit targets! Take a knife and stick it in the target!  
+It is a game for those who love knives and thrills! Its a game for the strong and the confident. Be on the razor's edge, take risks and hit targets! Take a knife and stick it in the target!  
 Do it in FLIPPY KNIFE in the metro or in a queue for a match, in a cafe or in a park, at school or at work!
 
 **FEATURES:**  
@@ -31,7 +31,7 @@ Do it in FLIPPY KNIFE in the metro or in a queue for a match, in a cafe or in a 
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: Unlimited Money**
 

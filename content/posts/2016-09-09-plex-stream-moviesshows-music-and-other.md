@@ -10,12 +10,12 @@ draft: false
 
 Plex Stream Movies,Shows, Music, and other Media 7.26.0.14578 Final Unlocked APK For Android
 
-Watch your favorite stars in some of their biggest roles for FREE! Plex gives you access to thousands of movies and shows, including documentaries, Bollywood musicals and more. No special equipment, subscription or special technical skills required (popcorn and snacks highly recommended). Just log into Plex to start watching. Discover dozens of new collections or create your own. Itâs not a risk, any reward.
+Watch your favorite stars in some of their biggest roles for FREE! Plex gives you access to thousands of movies and shows, including documentaries, Bollywood musicals and more. No special equipment, subscription or special technical skills required (popcorn and snacks highly recommended). Just log into Plex to start watching. Discover dozens of new collections or create your own. Its not a risk, any reward.
 
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 Download Plex Stream Movies,Shows, Music, and other Media 7.26.0.14578 Final Unlocked APK For Android
 =====================================================================================================

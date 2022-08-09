@@ -1,14 +1,14 @@
 ---
-title: 'World Conqueror 4 1.2.38 MOD (Free Shopping)Â  APK For Android'
+title: 'World Conqueror 4 1.2.38 MOD (Free Shopping)  APK For Android'
 date: 2020-01-09T05:00:00+01:00
 draft: false
 ---
 
-![World Conqueror 4 1.2.38 MOD (Free Shopping)Â  APK For Android](https://i0.wp.com/apkhome.net/wp-content/uploads/2020/01/World-Conqueror-4-1.2.38-MOD-Free-Shopping.png "World Conqueror 4 1.2.38 MOD (Free Shopping)Â  APK For Android")
+![World Conqueror 4 1.2.38 MOD (Free Shopping)  APK For Android](https://i0.wp.com/apkhome.net/wp-content/uploads/2020/01/World-Conqueror-4-1.2.38-MOD-Free-Shopping.png "World Conqueror 4 1.2.38 MOD (Free Shopping)  APK For Android")
 
   
 
-World Conqueror 4 1.2.38 MOD (Free Shopping)Â  APK For Android
+World Conqueror 4 1.2.38 MOD (Free Shopping)  APK For Android
 
 World Conqueror 4 is the most recent game released by EASYTECH in 2017.
 
@@ -26,7 +26,7 @@ Scenario
 
 Conquest
 
-\* Experience \[WWâ¡ 1939\] \[WWâ¡ 1943\] \[Cold War 1950\] \[Modern War 1980\]
+\* Experience \[WW¡ 1939\] \[WW¡ 1943\] \[Cold War 1950\] \[Modern War 1980\]
 
 \* Select any country in the world, adjust your diplomatic tactics, help your allies and declare war on other countries
 
@@ -35,11 +35,11 @@ Conquest
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: Free Shopping**
 
-Download World Conqueror 4 1.2.38 MOD (Free Shopping)Â  APK For Android
+Download World Conqueror 4 1.2.38 MOD (Free Shopping)  APK For Android
 =======================================================================
 
 Additional Information

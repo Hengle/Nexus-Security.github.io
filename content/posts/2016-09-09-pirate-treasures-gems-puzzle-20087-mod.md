@@ -12,13 +12,13 @@ Pirate Treasures Gems Puzzle 2.0.0.87 MOD (Many coins + unlimited lives) APK For
 
 You are a young privateer, your goal is to become a pirate. To make your dream come true, you must find treasures using old maps.  
 The game comes in several episodes. You have a different treasure map in each episode. Follow his directions to the end to discover the pirate treasure.  
-This game is based on a âMatch 3â system, where you have to swap two neighboring elements to align at least three similar gems. Each level offers you a list of objectives to complete.  
+This game is based on a Match 3 system, where you have to swap two neighboring elements to align at least three similar gems. Each level offers you a list of objectives to complete.  
 When you have difficulty with a level, you can use coins to purchase a useful bonus. The coins are also used to restore lives and buy rum for sailors, giving you access to new episodes.
 
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: Many coins + unlimited lives**
 

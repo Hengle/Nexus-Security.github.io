@@ -20,7 +20,7 @@ Capture enemy territories, expand your army, and throw yourself onto the battlef
 **Supported Android**  
 {4.2 and UP}  
 Supported Android Version:-  
-Jelly Bean (4.2â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) or UP
+Jelly Bean (4.2"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) or UP
 
 Hack MOD + Data Unlimited Money
 

@@ -12,12 +12,12 @@ PES CARD COLLECTION 1.12.0 APK For Android
 
 PES COLLECTION OF CARD (PESCC) is a free-to-play football game that you collect the cards of the most popular football players in the world to create the ultimate team! While you are searching for the perfect training for your team, you can enjoy training your player cards and developing your team.  
 From the data of the long-lasting PES series, the games to play PESCC in magnificent 3D. You can even make others aware of your specific emotions by sending unique stickers during a game.  
-The players of the world's top national teams are here, including Argentina, Brazil and Portugal, as well as stars from some of the most popular club teams, including FC Barcelona, ââLiverpool FC, Arsenal FC and 09 BORUSSIA DORTMUND BV. All cards have pictures of high quality players. Gather your favorite players, train them and build your own unique team of superstars!
+The players of the world's top national teams are here, including Argentina, Brazil and Portugal, as well as stars from some of the most popular club teams, including FC Barcelona, Liverpool FC, Arsenal FC and 09 BORUSSIA DORTMUND BV. All cards have pictures of high quality players. Gather your favorite players, train them and build your own unique team of superstars!
 
 **Supported Android**  
 {5.0 and UP}  
 Supported Android Version:-  
-Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1)
+Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1)
 
 Download PES CARD COLLECTION 1.12.0 APK For Android
 ===================================================

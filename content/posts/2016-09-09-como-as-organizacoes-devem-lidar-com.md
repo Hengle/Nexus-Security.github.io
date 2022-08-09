@@ -20,7 +20,7 @@ Os consumidores podem se proteger melhor usando senhas seguras e diferentes, pos
   
 Mas as organizações que não conseguem se proteger adequadamente também são vulneráveis ​​a violações de dados. Nesses casos, não é necessariamente se, mas quando, pode ocorrer uma violação. E como uma organização lida com uma violação pode ser tão crítica quanto proteger contra uma. Para ajudar as organizações a responder melhor a violações de dados, Ryan McGonagill, CMO da [Security.org](http://security.org/) , oferece os seguintes conselhos:  
   
-"No caso de uma violação de dados, é importante não entrar em pânico, montar uma equipe e formular uma abordagem calculada, "McGonagill disse. "Dependendo do tamanho da empresa e da natureza da violação de dados, isso pode exigir a participação de uma equipe forense de dados, assessoria jurídica, RH, comunicações, relações com investidores e relações públicas, etc."  
+"No caso de uma violação de dados, é importante não entrar em pnico, montar uma equipe e formular uma abordagem calculada, "McGonagill disse. "Dependendo do tamanho da empresa e da natureza da violação de dados, isso pode exigir a participação de uma equipe forense de dados, assessoria jurídica, RH, comunicações, relações com investidores e relações públicas, etc."  
   
 Dicas de prevenção  
 Adote uma abordagem em três frentes. A FTC aconselha as empresas a adotarem uma abordagem tripla na resposta a violações de dados. Os objetivos são: 1) proteger os sistemas da empresa, 2) corrigir as vulnerabilidades que podem ter causado a violação para evitar novos ataques e 3) notificar as partes apropriadas.  

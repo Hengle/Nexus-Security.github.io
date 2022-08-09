@@ -1,14 +1,14 @@
 ---
-title: 'Guns GirlZ Mirage Cabin 6.4.42 MOD + DATA (God Mode + High Speed ââ+ 1 Hit Damage) APK For Android'
+title: 'Guns GirlZ Mirage Cabin 6.4.42 MOD + DATA (God Mode + High Speed + 1 Hit Damage) APK For Android'
 date: 2020-01-08T10:14:00+01:00
 draft: false
 ---
 
-![Guns GirlZ Mirage Cabin 6.4.42 MOD + DATA (God Mode + High Speed ââ+ 1 Hit Damage) APK For Android](https://i0.wp.com/apkhome.net/wp-content/uploads/2020/01/Guns-GirlZ-Mirage-Cabin-6.4.42-MOD-DATA-God-Mode-High-Speed-ââ-1-Hit-Damage.jpg "Guns GirlZ Mirage Cabin 6.4.42 MOD + DATA (God Mode + High Speed ââ+ 1 Hit Damage) APK For Android")
+![Guns GirlZ Mirage Cabin 6.4.42 MOD + DATA (God Mode + High Speed + 1 Hit Damage) APK For Android](https://i0.wp.com/apkhome.net/wp-content/uploads/2020/01/Guns-GirlZ-Mirage-Cabin-6.4.42-MOD-DATA-God-Mode-High-Speed--1-Hit-Damage.jpg "Guns GirlZ Mirage Cabin 6.4.42 MOD + DATA (God Mode + High Speed + 1 Hit Damage) APK For Android")
 
   
 
-Guns GirlZ Mirage Cabin 6.4.42 MOD + DATA (God Mode + High Speed ââ+ 1 Hit Damage) APK For Android
+Guns GirlZ Mirage Cabin 6.4.42 MOD + DATA (God Mode + High Speed + 1 Hit Damage) APK For Android
 
 What would you do to survive in an apocalyptic world where your classmates have turned into zombies? How far can you go to save your loved ones?  
 Plan your escape route and shoot your way out of the zombie swarm. The apocalypse is already upon us. The source emits a huge amount of energy and infects the weakest spirits. Find out the real reason behind it and stop the total destruction of humanity. Stay alert, choose your weapons, save your friends and save the world.
@@ -18,11 +18,11 @@ Guns GirlZ - Mirage Cabin is an easy to take and play arcade action game. Player
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
-**MOD TYPE: God Mode + High Speed ââ+ 1 Hit Damage**
+**MOD TYPE: God Mode + High Speed + 1 Hit Damage**
 
-Download Guns GirlZ Mirage Cabin 6.4.42 MOD + DATA (God Mode + High Speed ââ+ 1 Hit Damage) APK For Android
+Download Guns GirlZ Mirage Cabin 6.4.42 MOD + DATA (God Mode + High Speed + 1 Hit Damage) APK For Android
 ===============================================================================================================
 
 **MOD**

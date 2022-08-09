@@ -14,14 +14,14 @@ Photo Crop is the latest photo cutting tool in the photo editing app. Add them t
 **features:**  
 \* Easy to use with a simple user interface.  
 \* Import a photo from a gallery or take a picture from a camera.  
-\* Rotate the picture 90 Â° clockwise or counterclockwise, then recompose the picture.  
+\* Rotate the picture 90 ° clockwise or counterclockwise, then recompose the picture.  
 \* Use your finger to zoom in / out, rotate the crop area on the photo.  
 \* No loss of image quality.
 
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 Download Photo Crop Premium 2.3 APK For Android
 ===============================================

@@ -27,7 +27,7 @@ varies with device
 Download Remixed Pixel Dungeon 26.5.fix.5 Hack MOD Unlimited Money APK For Android
 ==================================================================================
 
-**Â **
+** **
 
 Additional Information
 ----------------------

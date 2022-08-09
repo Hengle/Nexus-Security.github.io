@@ -1,14 +1,14 @@
 ---
-title: 'BLEACH Brave Souls 3D Action 9.5.1 MOD (God Mode + One Hit Kill + Unlimited Skills)Â  APK For Android'
+title: 'BLEACH Brave Souls 3D Action 9.5.1 MOD (God Mode + One Hit Kill + Unlimited Skills)  APK For Android'
 date: 2020-01-08T05:42:00+01:00
 draft: false
 ---
 
-![BLEACH Brave Souls 3D Action 9.5.1 MOD (God Mode + One Hit Kill + Unlimited Skills)Â  APK For Android](https://i0.wp.com/apkhome.net/wp-content/uploads/2020/01/BLEACH-Brave-Souls-3D-Action-9.5.1-MOD-God-Mode-One-Hit-Kill-Unlimited-Skills-.png "BLEACH Brave Souls 3D Action 9.5.1 MOD (God Mode + One Hit Kill + Unlimited Skills)Â  APK For Android")
+![BLEACH Brave Souls 3D Action 9.5.1 MOD (God Mode + One Hit Kill + Unlimited Skills)  APK For Android](https://i0.wp.com/apkhome.net/wp-content/uploads/2020/01/BLEACH-Brave-Souls-3D-Action-9.5.1-MOD-God-Mode-One-Hit-Kill-Unlimited-Skills-.png "BLEACH Brave Souls 3D Action 9.5.1 MOD (God Mode + One Hit Kill + Unlimited Skills)  APK For Android")
 
   
 
-BLEACH Brave Souls 3D Action 9.5.1 MOD (God Mode + One Hit Kill + Unlimited Skills)Â  APK For Android
+BLEACH Brave Souls 3D Action 9.5.1 MOD (God Mode + One Hit Kill + Unlimited Skills)  APK For Android
 
 The first action game based on the famous and animated manga Bleach on your mobile.  
 Collect your favorite characters from the Bleach universe and assemble the ultimate team!  
@@ -29,11 +29,11 @@ In story mode, relive unforgettable scenes from the history of Ichigo and Rukia,
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: God Mode + One Hit Kill + Unlimited Skills**
 
-Download BLEACH Brave Souls 3D Action 9.5.1 MOD (God Mode + One Hit Kill + Unlimited Skills)Â  APK For Android
+Download BLEACH Brave Souls 3D Action 9.5.1 MOD (God Mode + One Hit Kill + Unlimited Skills)  APK For Android
 ==============================================================================================================
 
 Additional Information

@@ -109,7 +109,7 @@ Clicar no botão laranja 'play' (Reproduzir) no canto inferior direito da tela i
 
 ![Tinder appblur.jpg](https://images.squarespace-cdn.com/content/v1/5689e180a2bab85273822321/1515592852935-GIXL3HOXU2RWL3PNP5UC/ke17ZwdGBToddI8pDm48kFCMwbRiDd0qYJYN6-1EAo4UqsxRUqqbr1mOJYKfIPR7LoDQ9mXPOjoJoqy81S2I8GRo6ASst2s6pLvNAu_PZdLwKcoejbCN47i7rcU72toYzd4j6q-LDD2_xHGrqBvXmJro3BtiToxHuVSuvzaGIXs/Tinder+appblur.jpg?format=750w)
 
-Agora estamos vendo usuários ativos no aplicativo a até 3 km de Amsterdã (os filtros de distância e pessoas podem ser alterados no aplicativo Tinder)
+Agora estamos vendo usuários ativos no aplicativo a até 3 km de Amsterdã (os filtros de distncia e pessoas podem ser alterados no aplicativo Tinder)
 
 ![Tinder settings.JPG](https://images.squarespace-cdn.com/content/v1/5689e180a2bab85273822321/1515593888305-LECIZHZVZ7MP5BHUV5LI/ke17ZwdGBToddI8pDm48kFcoH1sbWBGblbUlmIuo61ZZw-zPPgdn4jUwVcJE1ZvWQUxwkmyExglNqGp0IvTJZUJFbgE-7XRK3dMEBRBhUpygOO9PHwQqSosE7BgeTRPqbqwHHzGOfrxxwVcByIzniypO32sWsWqqqsI1PQO5hEw/Tinder+settings.JPG?format=750w)
 

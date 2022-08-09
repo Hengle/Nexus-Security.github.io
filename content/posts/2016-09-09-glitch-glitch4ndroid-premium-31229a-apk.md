@@ -1,14 +1,14 @@
 ---
-title: 'Glitch glitch4ndroid Premium 3.12.29Â  APK For Android'
+title: 'Glitch glitch4ndroid Premium 3.12.29  APK For Android'
 date: 2020-01-14T07:42:00+01:00
 draft: false
 ---
 
-![Glitch glitch4ndroid Premium 3.12.29Â  APK For Android](https://i1.wp.com/apkhome.net/wp-content/uploads/2020/01/Glitch-glitch4ndroid-Premium-3.12.29.png "Glitch glitch4ndroid Premium 3.12.29Â  APK For Android")
+![Glitch glitch4ndroid Premium 3.12.29  APK For Android](https://i1.wp.com/apkhome.net/wp-content/uploads/2020/01/Glitch-glitch4ndroid-Premium-3.12.29.png "Glitch glitch4ndroid Premium 3.12.29  APK For Android")
 
   
 
-Glitch glitch4ndroid Premium 3.12.29Â  APK For Android
+Glitch glitch4ndroid Premium 3.12.29  APK For Android
 
 Photo editing application that allows you to quickly generate random and real glitches in your photo without using Photoshop or a computer!  
 Upload photos from a camera or gallery, edit them with multiple effects and filters.  
@@ -17,9 +17,9 @@ Become a digital artist, create real and completely random glitches, to add this
 **Supported Android**  
 {Varies with device}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
-Download Glitch glitch4ndroid Premium 3.12.29Â  APK For Android
+Download Glitch glitch4ndroid Premium 3.12.29  APK For Android
 ===============================================================
 
 Additional Information

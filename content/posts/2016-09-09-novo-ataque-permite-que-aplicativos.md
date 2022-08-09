@@ -41,7 +41,7 @@ Spearphone Attack: Spy On Calls, anotações de voz e multimídia
 --------------------------------------------------------------
 
   
-Segundo os pesquisadores, o ataque do Spearphone pode ser usado para aprender sobre o conteúdo do áudio reproduzido pela vítima - selecionado na galeria de dispositivos na Internet ou notas de voz recebidas nos aplicativos de mensagens instantâneas como o WhatsApp.  
+Segundo os pesquisadores, o ataque do Spearphone pode ser usado para aprender sobre o conteúdo do áudio reproduzido pela vítima - selecionado na galeria de dispositivos na Internet ou notas de voz recebidas nos aplicativos de mensagens instantneas como o WhatsApp.  
   
 
 > "O ataque proposto pode espionar as chamadas de voz para comprometer a privacidade da fala de um usuário final remoto na chamada", explicam os pesquisadores.   
@@ -58,7 +58,7 @@ Os pesquisadores acreditam que, usando técnicas e ferramentas conhecidas, o ata
 Além disso, o ataque Spearphone também pode ser usado para determinar simplesmente algumas características de fala de outros usuários, incluindo classificação de gênero, com mais de 90% de precisão, e identificação de alto-falante, com mais de 80% de precisão.  
   
 
->  "Por exemplo, um invasor pode saber se um indivíduo em particular (uma pessoa de interesse sob vigilância da polícia) estava em contato com o proprietário do telefone em um determinado momento", dizem os pesquisadores.
+>  "Por exemplo, um invasor pode saber se um indivíduo em particular (uma pessoa de interesse sob vigilncia da polícia) estava em contato com o proprietário do telefone em um determinado momento", dizem os pesquisadores.
 
   
 [Nitesh Saxena](https://twitter.com/saxenaUAB) também confirmou ao The Hacker News que o ataque não pode ser usado para capturar a voz dos usuários-alvo ou seus arredores, porque "isso não é forte o suficiente para afetar os sensores de movimento do telefone, especialmente devido às baixas taxas de amostragem impostas pelo sistema operacional", e portanto, também não interfere nas leituras do acelerômetro.   

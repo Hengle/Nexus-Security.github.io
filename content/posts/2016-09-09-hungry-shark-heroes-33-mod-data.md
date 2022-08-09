@@ -16,12 +16,12 @@ COLLECT MORE THAN 120 REQUESTS: the adorable Swell Shark, the intelligent Longno
 
 BATTLE TO WIN: Equip your sharks and take part in epic battles against other players! Select the perfect combinations, use special Shark-Fu, choose the right combat timing ... Develop your strategies to claim victory!
 
-UNIQUE ROOTS: Help your sharks fall in love andâ¦ witness the birth of new sharks! Mate sharks from your own collection, or borrow from your friends! Hundreds of pairings, hundreds of possibilities!
+UNIQUE ROOTS: Help your sharks fall in love and¦ witness the birth of new sharks! Mate sharks from your own collection, or borrow from your friends! Hundreds of pairings, hundreds of possibilities!
 
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: Unlimited Money**
 

@@ -1,14 +1,14 @@
 ---
-title: 'Mr Bullet Spy Puzzles 4.0 MOD (Unlimited Money + Unlocked)Â  APK For Android'
+title: 'Mr Bullet Spy Puzzles 4.0 MOD (Unlimited Money + Unlocked)  APK For Android'
 date: 2020-01-23T18:00:00+01:00
 draft: false
 ---
 
-![Mr Bullet Spy Puzzles 4.0 MOD (Unlimited Money + Unlocked)Â  APK For Android](https://i1.wp.com/apkhome.net/wp-content/uploads/2020/01/Mr-Bullet-Spy-Puzzles-4.0-MOD-Unlimited-Money-Unlocked.png "Mr Bullet Spy Puzzles 4.0 MOD (Unlimited Money + Unlocked)Â  APK For Android")
+![Mr Bullet Spy Puzzles 4.0 MOD (Unlimited Money + Unlocked)  APK For Android](https://i1.wp.com/apkhome.net/wp-content/uploads/2020/01/Mr-Bullet-Spy-Puzzles-4.0-MOD-Unlimited-Money-Unlocked.png "Mr Bullet Spy Puzzles 4.0 MOD (Unlimited Money + Unlocked)  APK For Android")
 
   
 
-Mr Bullet Spy Puzzles 4.0 MOD (Unlimited Money + Unlocked)Â  APK For Android
+Mr Bullet Spy Puzzles 4.0 MOD (Unlimited Money + Unlocked)  APK For Android
 
 Are you ready to become a hero, a spy and a legend? Solve puzzling challenges, show off your deadly accuracy, and target enemies. Come experience the shooting phenomenon.
 
@@ -28,11 +28,11 @@ Rescue hostages, throw grenades at people and take part in secret missions. What
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: Unlimited Money + Unlocked**
 
-Download Mr Bullet Spy Puzzles 4.0 MOD (Unlimited Money + Unlocked)Â  APK For Android
+Download Mr Bullet Spy Puzzles 4.0 MOD (Unlimited Money + Unlocked)  APK For Android
 =====================================================================================
 
 Additional Information

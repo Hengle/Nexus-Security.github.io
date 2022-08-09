@@ -20,7 +20,7 @@ Wolfie is a pack of 156 awesome widgets for KWGT and 87 wallpapers. New widgets 
 **Supported Android**  
 {5.0 and UP}  
 Supported Android Version:-  
-Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1)
+Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1)
 
 Download Wolfie for KWGT 2018.01.07 APK For Android
 ===================================================

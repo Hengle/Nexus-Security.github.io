@@ -10,12 +10,12 @@ draft: false
 
 Kodi 18.5 Final APK For Android
 
-KodiÂ® media center is a cross\*platform, multi\*platform software and multi\*platform entertainment hub for digital media for PC home theater (HTPC). It uses a 10\*foot user interface designed as a media player for the living room, using a remote control as the main input device. Its graphical user interface (GUI) allows users to easily browse and view videos, photos, podcasts, and music from a hard disk, optical disk, and local area network. Internet with just a few buttons.
+Kodi® media center is a cross\*platform, multi\*platform software and multi\*platform entertainment hub for digital media for PC home theater (HTPC). It uses a 10\*foot user interface designed as a media player for the living room, using a remote control as the main input device. Its graphical user interface (GUI) allows users to easily browse and view videos, photos, podcasts, and music from a hard disk, optical disk, and local area network. Internet with just a few buttons.
 
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 Download Kodi 18.5 Final APK For Android
 ========================================

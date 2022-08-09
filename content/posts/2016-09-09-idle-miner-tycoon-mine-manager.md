@@ -1,14 +1,14 @@
 ---
-title: 'Idle Miner Tycoon Mine Manager Simulator 2.71.0Â  MOD (Unlimited Money) APK For Android'
+title: 'Idle Miner Tycoon Mine Manager Simulator 2.71.0  MOD (Unlimited Money) APK For Android'
 date: 2020-01-01T00:56:00+01:00
 draft: false
 ---
 
-![Idle Miner Tycoon Mine Manager Simulator 2.71.0Â  MOD (Unlimited Money) APK For Android](https://i0.wp.com/apkhome.net/wp-content/uploads/2019/11/Idle-Miner-Tycoon-Mine-Manager-Simulator.png "Idle Miner Tycoon Mine Manager Simulator 2.71.0Â  MOD (Unlimited Money) APK For Android")
+![Idle Miner Tycoon Mine Manager Simulator 2.71.0  MOD (Unlimited Money) APK For Android](https://i0.wp.com/apkhome.net/wp-content/uploads/2019/11/Idle-Miner-Tycoon-Mine-Manager-Simulator.png "Idle Miner Tycoon Mine Manager Simulator 2.71.0  MOD (Unlimited Money) APK For Android")
 
   
 
-Idle Miner Tycoon Mine Manager Simulator 2.71.0Â  MOD (Unlimited Money) APK For Android
+Idle Miner Tycoon Mine Manager Simulator 2.71.0  MOD (Unlimited Money) APK For Android
 
 Have you ever wondered how effective you can be? Become a manager by managing your mine and your profit and earn enough money to realize your dreams. Expand your millionaire empire and boost the productivity of your miners and your economy with specialized managers who will automate the workflow of your mine! Take the challenge and discover the best strategy to invest and make as much money as possible, online and offline! Become a mine manager in this simulation and you will be a management magnate.
 
@@ -23,11 +23,11 @@ Have you ever wondered how effective you can be? Become a manager by managing yo
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: Unlimited Money**
 
-Download Idle Miner Tycoon Mine Manager Simulator 2.71.0Â  MOD (Unlimited Money) APK For Android
+Download Idle Miner Tycoon Mine Manager Simulator 2.71.0  MOD (Unlimited Money) APK For Android
 ================================================================================================
 
 Additional Information

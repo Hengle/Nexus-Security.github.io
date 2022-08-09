@@ -27,7 +27,7 @@ O conteúdo de cada capítulo é independente e provavelmente deve ser lido aos 
   
 "Muitas das minhas opiniões e dicas táticas, conforme expressas neste livro, foram extraídas de \[...\] blogs".  
   
-Isso significa que há alguma repetição, por exemplo, entre o primeiro capítulo, 'Trinta anos de malware: um breve resumo', e o capítulo 'Ameaças de hoje' nas definições. Mais tarde, a importância de corrigir e fazer backup é repetida e, embora eu pense que todos podemos concordar que eles são importantes, a maneira pela qual você repete as coisas é crucial.  
+Isso significa que há alguma repetição, por exemplo, entre o primeiro capítulo, 'Trinta anos de malware: um breve resumo', e o capítulo 'Ameaças de hoje' nas definições. Mais tarde, a importncia de corrigir e fazer backup é repetida e, embora eu pense que todos podemos concordar que eles são importantes, a maneira pela qual você repete as coisas é crucial.  
   
 Dito isto, você pode sentir o amor e o conhecimento do autor sobre os assuntos que vêm através das páginas. Obviamente, ele desfrutou de seus 30 anos na indústria e está ansioso pelos próximos 14.  
   

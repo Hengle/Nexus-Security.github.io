@@ -126,7 +126,7 @@ Para copiar todos os arquivos de um diretório ou pasta para outro, usaremos o c
 
 _xcopy folder1 folder2_
 
-Veremos como os arquivos da pasta1 são copiados para a pasta2. Se no final do comando adicionarmos o parâmetro / S, estaremos indicando que os diretórios e subdiretórios são copiados, exceto aqueles que estão vazios. Se adicionarmos o parâmetro / E, a cópia de todos será feita, incluindo as vazias.
+Veremos como os arquivos da pasta1 são copiados para a pasta2. Se no final do comando adicionarmos o parmetro / S, estaremos indicando que os diretórios e subdiretórios são copiados, exceto aqueles que estão vazios. Se adicionarmos o parmetro / E, a cópia de todos será feita, incluindo as vazias.
 
 #### MOVE
 
@@ -178,7 +178,7 @@ Assim como podemos criar facilmente um arquivo de texto a partir da linha de com
 
 _digite file.txt_
 
-O conteúdo do arquivo de texto será exibido automaticamente no console. Este comando permite passar dois parâmetros, ou seja, dois arquivos de texto, para que possamos ver o conteúdo de dois arquivos executando um único comando:
+O conteúdo do arquivo de texto será exibido automaticamente no console. Este comando permite passar dois parmetros, ou seja, dois arquivos de texto, para que possamos ver o conteúdo de dois arquivos executando um único comando:
 
 _digite file1.txt file2.txt_
 
@@ -251,7 +251,7 @@ Os comandos do DISM nos permitem capturar e aplicar imagens do Windows, adiciona
 
 _Dism / Online / Imagem de limpeza / ScanHealth_
 
-Como sempre, podemos ver o restante das opções e parâmetros executando dism /?. Lembre-se de que, para usar a ferramenta DISM, teremos que abrir o prompt de comando ou o CMD com permissões de administrador.
+Como sempre, podemos ver o restante das opções e parmetros executando dism /?. Lembre-se de que, para usar a ferramenta DISM, teremos que abrir o prompt de comando ou o CMD com permissões de administrador.
 
 #### CFS
 
@@ -263,7 +263,7 @@ Agora, basta aguardar a conclusão do processo, pois ele tentará reparar qualqu
 
 #### CHKDSK
 
-Nesta ocasião, o comando chkdsk nos ajuda a detectar problemas em nosso disco rígido ou unidade de armazenamento do equipamento. Dessa maneira, executando a ferramenta na linha de comando, podemos detectar problemas em nosso disco para evitar erros graves. Seu uso é muito simples, basta escrever o comando **chkdsk,** seguido de **um espaço** e a **letra** da unidade **junto com: o** que corresponde à partição ou disco que queremos analisar. O comando admite uma série de parâmetros para indicar se queremos que, além de detectá-los, tente corrigir (/ F), se encontra setores defeituosos que tentam recuperar as informações (/ R), etc. Todos nós podemos vê-los executando o chkdsk /?.
+Nesta ocasião, o comando chkdsk nos ajuda a detectar problemas em nosso disco rígido ou unidade de armazenamento do equipamento. Dessa maneira, executando a ferramenta na linha de comando, podemos detectar problemas em nosso disco para evitar erros graves. Seu uso é muito simples, basta escrever o comando **chkdsk,** seguido de **um espaço** e a **letra** da unidade **junto com: o** que corresponde à partição ou disco que queremos analisar. O comando admite uma série de parmetros para indicar se queremos que, além de detectá-los, tente corrigir (/ F), se encontra setores defeituosos que tentam recuperar as informações (/ R), etc. Todos nós podemos vê-los executando o chkdsk /?.
 
 ![](https://www.adslzone.net/app/uploads/2019/06/apagarpc-715x374.jpg)
 
@@ -285,7 +285,7 @@ _desligamento / s / t 3600_
 
 Onde 3600 são os segundos que você esperará para desligar. Podemos ver todas as opções de desligamento executando o desligamento /?. Se, para alguma coisa, quisermos cancelar o desligamento do equipamento programado pelo desligamento, teremos que executar o comando shutdown / a.
 
-Para reiniciar o computador, teremos que usar esse mesmo comando, mas junto com o parâmetro / r. Se executarmos o comando:
+Para reiniciar o computador, teremos que usar esse mesmo comando, mas junto com o parmetro / r. Se executarmos o comando:
 
 _desligamento / r / t 60_
 

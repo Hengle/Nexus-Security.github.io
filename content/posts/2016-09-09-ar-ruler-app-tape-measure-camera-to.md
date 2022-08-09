@@ -15,14 +15,14 @@ The AR Ruler app uses augmented reality (AR) technology to measure the real worl
 \* AR Ruler application - allows you to measure linear sizes in cm, m, mm, inches, feet, yard.  
 \* Rangefinder - allows you to measure the distance from the camera of the device to a fixed point on the detected 3D plane.  
 \* Angle - allows you to measure corners on 3D planes.  
-\* Area and perimeter - allows you to measure the perimeter and area of ââthe room with measuring tape.  
+\* Area and perimeter - allows you to measure the perimeter and area of the room with measuring tape.  
 \* Volume - allows you to measure the size of striped 3D objects.  
 \* Path - allows you to calculate the length of the path.  
 \* Height - allows you to measure the height of the tape relative to the recognized surface.  
 **Supported Android**  
 {7.0 and UP}  
 **Supported Android Version**:-  
-Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 Download AR Ruler App Tape Measure & Camera To Plan Pro 1.4.7 APK For Android
 =============================================================================

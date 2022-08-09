@@ -15,7 +15,7 @@ Use the powerful technologies of the Elder and repel the attack of enemy armies!
 
 **Features:**  
 \* Classic Tower Defense (TD) for those who love good old games;  
-\* Build towers in any free area of ââthe land;  
+\* Build towers in any free area of the land;  
 \* 40 unique levels;  
 \* Lots of diverse enemies with their own characteristics;  
 \* The game features upgrade rounds, and everything in between. New improvements allow you to select exceptional strategies for each level. Even the base can be upgraded!  
@@ -27,7 +27,7 @@ Use the powerful technologies of the Elder and repel the attack of enemy armies!
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: Unlimited Money  
 **

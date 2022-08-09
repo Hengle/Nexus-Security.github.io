@@ -10,12 +10,12 @@ draft: false
 
 Micro Guard PRO Microphone Blocker Premium 4.0 Paid APK For Android
 
-Micro Guard â¢ ensures that no pirate or spy can listen to you. With one click, the built\*in microphone of your Android â¢ smartphone will be completely protected. For good reason: everything and everyone is spied on! We have known this since June 2013, when the first NSA documents were revealed by whistleblower Snowden. Since then, more and more threatening details have been constantly discovered. But not only hackers have found solutions to abuse microphones without notifying the user.
+Micro Guard ¢ ensures that no pirate or spy can listen to you. With one click, the built\*in microphone of your Android ¢ smartphone will be completely protected. For good reason: everything and everyone is spied on! We have known this since June 2013, when the first NSA documents were revealed by whistleblower Snowden. Since then, more and more threatening details have been constantly discovered. But not only hackers have found solutions to abuse microphones without notifying the user.
 
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 Download Micro Guard PRO Microphone Blocker Premium 4.0 Paid APK For Android
 ============================================================================

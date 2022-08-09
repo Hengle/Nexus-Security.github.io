@@ -17,7 +17,7 @@ Run for free in a massive open game world full of gang wars, robbery, vice, auto
 \* V IS FOR VEGAS: THE CITY OF SIN  
 Explore every inch of this great open city, where every vice has a price.  
 Discover every TPS action mission, race challenge, secret collectible and grandiose flight you can find.  
-Try your luck with your favorite casino game. You know, the kind they don't play in San Andreasâ¦
+Try your luck with your favorite casino game. You know, the kind they don't play in San Andreas¦
 
 \* OPEN WORLD ENCOUNTERS  
 Start your boxing story in Las Vegas for the Mafia. But soon you will be free to claim the real grand prize by sending your own criminal clans against the gang world of the city.  
@@ -27,7 +27,7 @@ You never know what you are going to fight next, because alien wars, tank waves 
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: Unlimited Money + Diamonds + Keys + SP  
 **

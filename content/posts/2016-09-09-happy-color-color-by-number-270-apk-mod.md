@@ -12,7 +12,7 @@ Happy Color Color by Number 2.7.0 APK + MOD (Unlimited Tips) APK For Android
 
 Color by Number is the number 1 paint by number and coloring book on Google Play.
 
-Happy Color â¢ is a color by number game for adults. There are so many colorful and exceptional photos to color!
+Happy Color ¢ is a color by number game for adults. There are so many colorful and exceptional photos to color!
 
 All 5000 are free. We have a large number of categories in our paint application by number:  
 Animals. Find the cutest boyfriend you want to color  
@@ -25,7 +25,7 @@ And this is only a small part of the images we have in Happy Color. Open the gam
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: Unlimited Tips  
 **

@@ -10,14 +10,14 @@ draft: false
 
 Dan the Man Cool Games 1.4.20 MOD (Unlimited Money) APK For Android
 
-This epic game returns to the roots of retro games to bring you an epic action platform brawler that you would swear you've seen in old arcade games! Download NOW and take control of the legendary (and often inappropriate) heroâ¦ Dan the man!
+This epic game returns to the roots of retro games to bring you an epic action platform brawler that you would swear you've seen in old arcade games! Download NOW and take control of the legendary (and often inappropriate) hero¦ Dan the man!
 
 With a funny and crunchy story, impressive evolving combat skills and an epic arsenal of weapons that will make even the most heroic heroes envious, the Dan The Man Arcade Fight Festival has enough enemies and fights to fight. boss to satisfy all hardcore players.
 
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: Unlimited Money**
 

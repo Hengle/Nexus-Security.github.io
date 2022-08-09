@@ -10,7 +10,7 @@ draft: false
 
 Sliced Icon Pack 1.2.3 Patched APK For Android
 
-Sliced ââIcons is a new Material Design icon pack with precision cut icons and a vibrant color palette. Give your interface a consistent and colorful look. Each icon is designed with perfection and follows a material design language  
+Sliced Icons is a new Material Design icon pack with precision cut icons and a vibrant color palette. Give your interface a consistent and colorful look. Each icon is designed with perfection and follows a material design language  
 **FEATURES**  
 \* 965\* beautifully designed icons (updated weekly icons)  
 \* Icons inspired by material design  
@@ -24,7 +24,7 @@ Sliced ââIcons is a new Material Design icon pack with precision cut i
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 Download Sliced Icon Pack 1.2.3 Patched APK For Android
 =======================================================

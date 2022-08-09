@@ -20,7 +20,7 @@ Facetune2, the next generation of the award-winning selfie editor Facetune, offe
 **Supported Android**  
 {7.0 and UP}  
 **Supported Android Version**:-  
-Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 Download Facetune2 Selfie Photo Editor 2.2.2.2 VIP APK For Android
 ==================================================================

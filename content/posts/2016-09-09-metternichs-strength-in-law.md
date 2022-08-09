@@ -4,7 +4,7 @@ date: 2019-10-26T06:27:00+01:00
 draft: false
 ---
 
-![](https://newcriterion.com/storage/app/uploads/public/b3c/9a5/e2b/thumb__0_0_0_0_auto.jpeg " Metternichâ€™s strength in law by Andrew Roberts | The New Criterion")  
+![](https://newcriterion.com/storage/app/uploads/public/b3c/9a5/e2b/thumb__0_0_0_0_auto.jpeg " Metternich€™s strength in law by Andrew Roberts | The New Criterion")  
 
 The legacy of Prince Clemens von Metternich (1773–1859), the Austrian foreign minister from 1809 and also chancellor from 1821 until 1848, has been a hotly debated issue among historians for decades. Was he, as Henry Kissinger and others believe, the infinitely subtle conservative master of realpolitik who brought down Napoleon and saved the peace of Europe for the next four decades? Or was he, as more progressive souls contest, a cynical arch-manipulator and reactionary who held back liberal reforms in Europe and whose sole achievement was to have been a progenitor of today’s European Union?
 
@@ -51,7 +51,7 @@ Siemann does not fall into the common trap of hailing Metternich as the progenit
 **Andrew Roberts **is the author of _Napoleon: A Life_ (Viking).
 
 This article originally appeared in The New Criterion, Volume 38 Number 3, on page 69  
-Copyright Â© 2019 The New Criterion | https://ift.tt/ZGbysW  
+Copyright © 2019 The New Criterion | https://ift.tt/ZGbysW  
 [https://newcriterion.com//issues/2019/11/metternichs-strength-in-law](https://newcriterion.com/issues/2019/11/metternichs-strength-in-law "https://newcriterion.com//issues/2019/11/metternichs-strength-in-law")
 
   

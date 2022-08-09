@@ -24,14 +24,14 @@ CREATE YOUR OWN DRAGON BALL DREAM TEAM!
 \* Organize your team to gather the best fighting force!
 
 THE WORLD OF DRAGON BALL IS YOUR BATTLEFIELD TO EXPLORE  
-\* The timeline has been thrown into chaos, putting you face to face with characters from the animeâ¦  
+\* The timeline has been thrown into chaos, putting you face to face with characters from the anime¦  
 \* Play the board game style card and the all-new story with your best Dragon Ball characters!  
 \* Trunks, the hero of the future, will fight alongside you!
 
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: God Mode + High Attack + Dice Always 1 2 3  
 **

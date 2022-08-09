@@ -10,12 +10,12 @@ draft: false
 
 FAV KWGT 9.5 APK For Android
 
-This is not stand alone application,Â  download KWGT GADGETS on the game shop
+This is not stand alone application,  download KWGT GADGETS on the game shop
 
 **Supported Android**  
 {5.0 and UP}  
 Supported Android Version:-  
-Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1)
+Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1)
 
 Download FAV KWGT 9.5 APK For Android
 =====================================

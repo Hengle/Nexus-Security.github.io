@@ -1,14 +1,14 @@
 ---
-title: 'DC Legends Battle for Justice 1.26.2 MOD (DEFENSE + DMG MULTIPLE)Â  APK For Android'
+title: 'DC Legends Battle for Justice 1.26.2 MOD (DEFENSE + DMG MULTIPLE)  APK For Android'
 date: 2019-12-08T02:56:00+01:00
 draft: false
 ---
 
-![DC Legends Battle for Justice 1.26.2 MOD (DEFENSE + DMG MULTIPLE)Â  APK For Android](https://i1.wp.com/apkhome.net/wp-content/uploads/2019/12/DC-Legends-Battle-for-Justice.png "DC Legends Battle for Justice 1.26.2 MOD (DEFENSE + DMG MULTIPLE)Â  APK For Android")
+![DC Legends Battle for Justice 1.26.2 MOD (DEFENSE + DMG MULTIPLE)  APK For Android](https://i1.wp.com/apkhome.net/wp-content/uploads/2019/12/DC-Legends-Battle-for-Justice.png "DC Legends Battle for Justice 1.26.2 MOD (DEFENSE + DMG MULTIPLE)  APK For Android")
 
   
 
-DC Legends Battle for Justice 1.26.2 MOD (DEFENSE + DMG MULTIPLE)Â  APK For Android
+DC Legends Battle for Justice 1.26.2 MOD (DEFENSE + DMG MULTIPLE)  APK For Android
 
 YOU WILL NOT SAVE THE WORLD ALONE - Fight alongside your Justice League heroes and your favorite villains in an epic RPG fighting game.
 
@@ -27,11 +27,11 @@ Customize your heroes to overcome all challenges and join the elite of the DC Co
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: DEFENSE + DMG MULTIPLE**
 
-Download DC Legends Battle for Justice 1.26.2 MOD (DEFENSE + DMG MULTIPLE)Â  APK For Android
+Download DC Legends Battle for Justice 1.26.2 MOD (DEFENSE + DMG MULTIPLE)  APK For Android
 ============================================================================================
 
 Additional Information

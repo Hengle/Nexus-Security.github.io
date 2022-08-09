@@ -10,10 +10,10 @@ draft: false
 
 Star Wars Galaxy of Heroes 0.18.500703 MOD (Unlimited Energy) APK For Android
 
-Realize your Star Wars â¢ dreams and fight with your favorite characters on the dark and bright sides in emblematic places to dominate the galaxy. Create and customize your dream squad with characters from all eras, including new characters from Solo â¢: A Star Wars â¢ Story, Star Wars â¢: The Last Jedi â¢ and Rogue One â¢: A Star Wars â¢ Story. Take on epic turn-based battles, battle giant bosses, fly legendary ships like the Millennium Falcon, and experience a different level!
+Realize your Star Wars ¢ dreams and fight with your favorite characters on the dark and bright sides in emblematic places to dominate the galaxy. Create and customize your dream squad with characters from all eras, including new characters from Solo ¢: A Star Wars ¢ Story, Star Wars ¢: The Last Jedi ¢ and Rogue One ¢: A Star Wars ¢ Story. Take on epic turn-based battles, battle giant bosses, fly legendary ships like the Millennium Falcon, and experience a different level!
 
 JOIN THE ULTIMATE TEAM  
-Rebel leaders? Partisans of the Empire? You choose ! Form teams on the light and dark side with heroes and other characters from the Star Wars â¢ universe. Refine your strategies and make decisive choices in this epic role-playing game. Choose teammates with complementary abilities to create invincible teams!
+Rebel leaders? Partisans of the Empire? You choose ! Form teams on the light and dark side with heroes and other characters from the Star Wars ¢ universe. Refine your strategies and make decisive choices in this epic role-playing game. Choose teammates with complementary abilities to create invincible teams!
 
 DOMINATE THE GALAXY  
 Defeat your opponents and climb to the top by winning the galactic holo games in a distant cantina. Refine your combat strategy by improving the abilities of your heroes as you progress to master even more powerful attacks and gain greater victories. Compete against other players in squad cantina battles, in the PvP squad arena, and in Squad Tournaments to dominate the galaxy.
@@ -21,7 +21,7 @@ Defeat your opponents and climb to the top by winning the galactic holo games in
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: Unlimited Energy**
 

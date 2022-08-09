@@ -11,7 +11,7 @@ draft: false
 Wolf Online 3.2.4 MOD + DATA (Mod Points) APK For Android
 
 Game presentation  
-Three wolf tribes start a fierce war. This is a real network game where you hunt other animals to ensure the life and survival of your tribe against other wolf fighting tribes. Itâs the best animal game online. This game is so successful that 5 million people have downloaded it worldwide. We are waiting for you, the best wolf warriors, to join this wolf fight.
+Three wolf tribes start a fierce war. This is a real network game where you hunt other animals to ensure the life and survival of your tribe against other wolf fighting tribes. Its the best animal game online. This game is so successful that 5 million people have downloaded it worldwide. We are waiting for you, the best wolf warriors, to join this wolf fight.
 
 Game theme  
 Hunting is about your survival, and to make your tribe of wolves prosper. Choose a tribe from Mountain Wolf, Snow Wolf and Wild Wolf, then join your tribe for the hunting party. Improve your own hunting skills and your own qualities to survive in this epic hunting game. You have to win a fight against other tribes in order to gain the trust of the friends of your tribe and accelerate the growth of your tribe. Each of the six types of hunting grounds offers you a unique environment for hunting, including a land for herbivores with rabbits, giraffes, deer, or a land with animals such as tigers, lions, rhinos. When you come across mythical monsters that will make your claws and sharp teeth useless, call your friends for help. They will join you to help you when you yell.  
@@ -20,7 +20,7 @@ If you are finally ready, join this trip to the hunting ground.
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: Mod Points**
 

@@ -1,14 +1,14 @@
 ---
-title: 'Gun War Survival TPS 1.1 MOD (God Mode + One Hit Kill)Â  APK For Android'
+title: 'Gun War Survival TPS 1.1 MOD (God Mode + One Hit Kill)  APK For Android'
 date: 2020-01-27T17:14:00+01:00
 draft: false
 ---
 
-![Gun War Survival TPS 1.1 MOD (God Mode + One Hit Kill)Â  APK For Android](https://i0.wp.com/apkhome.net/wp-content/uploads/2020/01/Gun-War-Survival-TPS-1.1-MOD-God-Mode-One-Hit-Kill.png "Gun War Survival TPS 1.1 MOD (God Mode + One Hit Kill)Â  APK For Android")
+![Gun War Survival TPS 1.1 MOD (God Mode + One Hit Kill)  APK For Android](https://i0.wp.com/apkhome.net/wp-content/uploads/2020/01/Gun-War-Survival-TPS-1.1-MOD-God-Mode-One-Hit-Kill.png "Gun War Survival TPS 1.1 MOD (God Mode + One Hit Kill)  APK For Android")
 
   
 
-Gun War Survival TPS 1.1 MOD (God Mode + One Hit Kill)Â  APK For Android
+Gun War Survival TPS 1.1 MOD (God Mode + One Hit Kill)  APK For Android
 
 Simple and fluid controls, easy to learn: learn quickly and play immediately.  
 Beautiful graphics and supports a wide variety of devices  
@@ -21,11 +21,11 @@ As an elite soldier, you must kill all the terrorists to survive. Complete all s
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: God Mode + One Hit Kill**
 
-Download Gun War Survival TPS 1.1 MOD (God Mode + One Hit Kill)Â  APK For Android
+Download Gun War Survival TPS 1.1 MOD (God Mode + One Hit Kill)  APK For Android
 =================================================================================
 
 Additional Information

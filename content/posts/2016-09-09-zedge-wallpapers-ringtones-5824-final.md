@@ -10,13 +10,13 @@ draft: false
 
 ZEDGE Wallpapers & Ringtones 5.82.4 Final Ad-Free Mod APK For Android
 
-ZEDGE â¢ gives you the best background wallpapers and cool ringtones for free!  
-Personalize your phone with HD wallpaper, live wallpapers, alarm sound or ringtone with ease. ZEDGE â¢ offers a complete catalog with millions of free wallpapers, live wallpapers, stickers, ring tones, alarm sounds and notification sounds for your Android phone. Looking for something \* it's on ZEDGE â¢
+ZEDGE ¢ gives you the best background wallpapers and cool ringtones for free!  
+Personalize your phone with HD wallpaper, live wallpapers, alarm sound or ringtone with ease. ZEDGE ¢ offers a complete catalog with millions of free wallpapers, live wallpapers, stickers, ring tones, alarm sounds and notification sounds for your Android phone. Looking for something \* it's on ZEDGE ¢
 
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 Download ZEDGE Wallpapers & Ringtones 5.82.4 Final Ad-Free Mod APK For Android
 ==============================================================================

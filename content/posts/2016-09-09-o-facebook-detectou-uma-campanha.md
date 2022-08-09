@@ -43,7 +43,7 @@ Em alguns países africanos, as redes administradas pela Rússia trabalharam com
 
 O Facebook se recusou a identificar quais pessoas ou organizações locais haviam trabalhado com as contas ou quais empresas estavam conectadas à atividade e Prigozhin, apelidado de "cozinheiro de Putin" pela mídia russa por causa dos banquetes que ele organizou para o líder russo Vladimir Putin.
 
-Mas pesquisadores da Universidade de Stanford, que trabalharam com o Facebook em sua investigação, disseram que as empresas incluem o Wagner Group - uma firma de empreiteiros militares que fontes disseram anteriormente à Reuters que realizaram missões de combate clandestinas em nome do Kremlin na Ucrânia e na Síria.
+Mas pesquisadores da Universidade de Stanford, que trabalharam com o Facebook em sua investigação, disseram que as empresas incluem o Wagner Group - uma firma de empreiteiros militares que fontes disseram anteriormente à Reuters que realizaram missões de combate clandestinas em nome do Kremlin na Ucrnia e na Síria.
 
 A Reuters informou no ano passado que o grupo havia se expandido para o trabalho econômico e diplomático em países como a República Centro-Africana, como parte de um esforço da Rússia para aumentar sua influência na África.
 

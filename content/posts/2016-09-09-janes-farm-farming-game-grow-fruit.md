@@ -10,7 +10,7 @@ draft: false
 
 Janes Farm farming game grow fruit & plants 8.7.1 MOD (Unlimited Money) APK For Android
 
-Janeâs Farm is your classic agricultural genius.
+Janes Farm is your classic agricultural genius.
 
 Meet young Jennifer. She just bought a small farm. It's the 1930s crisis, but Jennifer is ready to do anything to succeed. This is where you join.
 
@@ -22,7 +22,7 @@ A wide variety of manufactured products and crops, lots of fruit shrubs and tree
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: Unlimited Money**
 

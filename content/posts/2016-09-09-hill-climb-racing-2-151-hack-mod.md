@@ -23,7 +23,7 @@ For More Info
 **Supported Android**  
 {4.2 and UP}  
 Supported Android Version:-  
-Jelly Bean (4.2â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) or UP
+Jelly Bean (4.2"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) or UP
 
 Download Hill Climb Racing 2 1.5.1 Hack MOD Unlimited Coins Unlock (Ad-Free) APK For Android
 ============================================================================================

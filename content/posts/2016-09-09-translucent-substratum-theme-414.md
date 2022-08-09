@@ -15,7 +15,7 @@ This theme is designed and confirmed to work best on stock Oreo, Samsung Galaxy 
 **Supported Android**  
 {7.0 and UP}  
 **Supported Android Version**:-  
-Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 Download Translucent Substratum Theme 4.14 Patched APK For Android
 ==================================================================

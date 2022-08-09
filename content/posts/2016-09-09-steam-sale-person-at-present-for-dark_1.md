@@ -12,7 +12,7 @@ Kid E Cats Sea Adventure Cat Games for Kids 1.6.0 MOD (Unlocked) APK For Android
 
 Games for children on the Ave Do you like family games, games for girls and games for boys? Play free games? Download free animal games and have fun!
 
-We produce great mini games for kids and games for babiesÂ  ï¸!  
+We produce great mini games for kids and games for babies  ï¸!  
 Meow-meow-meow!  
 Kid-E-Cats invite you for an extraordinary marine adventure!  
 Does it tell you to go in search of ancient treasures?  
@@ -25,7 +25,7 @@ On the way, you have encountered icebergs, strong winds and maybe a storm ... Bu
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: Unlocked**
 

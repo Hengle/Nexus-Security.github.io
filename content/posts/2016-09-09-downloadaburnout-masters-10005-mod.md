@@ -1,14 +1,14 @@
 ---
-title: 'DownloadÂ Burnout Masters 1.0005 MOD (Unlimited Money) APK For Android'
+title: 'Download Burnout Masters 1.0005 MOD (Unlimited Money) APK For Android'
 date: 2020-01-10T19:14:00+01:00
 draft: false
 ---
 
-![DownloadÂ Burnout Masters 1.0005 MOD (Unlimited Money) APK For Android](https://i1.wp.com/apkhome.net/wp-content/uploads/2020/01/Burnout-Masters-1.0005-MOD-Unlimited-Money.png "DownloadÂ Burnout Masters 1.0005 MOD (Unlimited Money) APK For Android")
+![Download Burnout Masters 1.0005 MOD (Unlimited Money) APK For Android](https://i1.wp.com/apkhome.net/wp-content/uploads/2020/01/Burnout-Masters-1.0005-MOD-Unlimited-Money.png "Download Burnout Masters 1.0005 MOD (Unlimited Money) APK For Android")
 
   
 
-DownloadÂ Burnout Masters 1.0005 MOD (Unlimited Money) APK For Android
+Download Burnout Masters 1.0005 MOD (Unlimited Money) APK For Android
 
 The official game BURNOUT MASTERS With the iconic Summernats event. Build the ultimate burnout and participate in Summernats 33!
 
@@ -22,11 +22,11 @@ Tilt, burn rubber and create maximum smoke while you donuts and other crazy stun
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: Unlimited Money**
 
-DownloadÂ Burnout Masters 1.0005 MOD (Unlimited Money) APK For Android
+Download Burnout Masters 1.0005 MOD (Unlimited Money) APK For Android
 ======================================================================
 
 Additional Information

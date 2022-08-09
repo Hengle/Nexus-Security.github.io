@@ -61,7 +61,7 @@ Estou preocupado que meus dados estejam nas mãos dos golpistas - o que devo faz
 ### Verifique sua pontuação de crédito com [Equifax](http://www.equifax.com.au/):
 
 *   é gratuito, uma vez por ano e informa seu histórico financeiro
-*   se você [vir](https://www.idcare.org/contact/contact-us) um pedido de empréstimo que não fez, entre em contato com o [IDCARE](https://www.idcare.org/contact/contact-us) da Austrália e da Nova Zelândia[](https://www.idcare.org/contact/contact-us).
+*   se você [vir](https://www.idcare.org/contact/contact-us) um pedido de empréstimo que não fez, entre em contato com o [IDCARE](https://www.idcare.org/contact/contact-us) da Austrália e da Nova Zelndia[](https://www.idcare.org/contact/contact-us).
 
 ### Verifique violações de dados públicos para o seu endereço de email através do [haveibeenpwned.com](https://haveibeenpwned.com/):
 

@@ -14,7 +14,7 @@ My Android 9.8 Mod Ads-Free APK For Android
 \* A list and the number of applications installed on your phone.  
 \* Memory available for phone and SD card.  
 \* Internet data usage function to monitor data usage for the mobile network and Wi\*Fi.  
-\* Internet Speed ââfunction to test the speed of the Internet service provider  
+\* Internet Speed function to test the speed of the Internet service provider  
 \* Internet connection to which your device is connected.  
 \* Front and rear megapixel cameras and the number of photos you can click on the camera based on the megapixel of your camera and the remaining memory on your phone.  
 \* How to take a screenshot (image of the current screen) on your phone.  
@@ -23,7 +23,7 @@ My Android 9.8 Mod Ads-Free APK For Android
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 Download My Android 9.8 Mod Ads-Free APK For Android
 ====================================================

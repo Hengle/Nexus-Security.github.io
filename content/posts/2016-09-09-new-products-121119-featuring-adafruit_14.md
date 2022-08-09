@@ -80,7 +80,7 @@ Easy e-paper finally comes to your Feather with this Adafruit EInk Feather Frien
 
 [Smart Home Kit for Digi-Key IoT Studio – Feather ESP32 + Parts](https://www.adafruit.com/product/4450)
 
-Coming soon! Automate your own adorable, IoT-enabled papier-mâché house. The small size of this build lets us explore wiring, user interaction, and firmware deployment without having to get a ladder out.
+Coming soon! Automate your own adorable, IoT-enabled papier-mché house. The small size of this build lets us explore wiring, user interaction, and firmware deployment without having to get a ladder out.
 
 [Read more](https://www.adafruit.com/product/4450)
 

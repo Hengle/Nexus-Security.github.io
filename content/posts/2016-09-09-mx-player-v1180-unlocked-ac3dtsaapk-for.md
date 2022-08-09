@@ -1,14 +1,14 @@
 ---
-title: 'MX Player v1.18.0 Unlocked AC3/DTSÂ APK For Android'
+title: 'MX Player v1.18.0 Unlocked AC3/DTS APK For Android'
 date: 2020-01-01T09:28:00+01:00
 draft: false
 ---
 
-![MX Player v1.18.0 Unlocked AC3/DTSÂ APK For Android](https://i1.wp.com/apkhome.net/wp-content/uploads/2020/01/MX-Player-v1.18.0-Unlocked-AC3.png "MX Player v1.18.0 Unlocked AC3/DTSÂ APK For Android")
+![MX Player v1.18.0 Unlocked AC3/DTS APK For Android](https://i1.wp.com/apkhome.net/wp-content/uploads/2020/01/MX-Player-v1.18.0-Unlocked-AC3.png "MX Player v1.18.0 Unlocked AC3/DTS APK For Android")
 
   
 
-MX Player v1.18.0 Unlocked AC3/DTSÂ APK For Android
+MX Player v1.18.0 Unlocked AC3/DTS APK For Android
 
 Powerful video player with advanced hardware acceleration and subtitle support.  
 **Characteristics:**  
@@ -21,9 +21,9 @@ Powerful video player with advanced hardware acceleration and subtitle support.
 **Supported Android**  
 {Varies With Device}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
-Download MX Player v1.18.0 Unlocked AC3/DTSÂ APK For Android
+Download MX Player v1.18.0 Unlocked AC3/DTS APK For Android
 ============================================================
 
 Additional Information

@@ -10,12 +10,12 @@ draft: false
 
 Bridge Constructor Portal 5.0 MOD (full version) APK For Android
 
-Enter the Aperture Science Enrichment Center and play Bridge Constructor Portal, a unique blend of Bridge Constructor â¢ and the classic Portal â¢.
+Enter the Aperture Science Enrichment Center and play Bridge Constructor Portal, a unique blend of Bridge Constructor ¢ and the classic Portal ¢.
 
 As a new employee of Aperture Science's testing lab, your job is to build bridges, ramps, slides, and more in 60 different test rooms, as well as to operate your Souplex and vehicles. safe and sound to the finish line.
 
 **Features :**  
-\* The fusion of two worlds: the first Bridge Constructor â¢ with an official Portal â¢ license  
+\* The fusion of two worlds: the first Bridge Constructor ¢ with an official Portal ¢ license  
 \* Create complex constructions in Aperture Science Labs  
 \* Let GlaDOS accompany you on complex physics adventures  
 \* Use gates, propellant gel, air plates and more to solve difficult problems.  
@@ -24,7 +24,7 @@ As a new employee of Aperture Science's testing lab, your job is to build bridge
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: full version**
 

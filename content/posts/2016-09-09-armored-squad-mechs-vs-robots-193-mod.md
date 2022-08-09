@@ -1,14 +1,14 @@
 ---
-title: 'Armored Squad Mechs vs Robots 1.9.3 MOD (Unlimited Coins + Skill Points)Â  APK For Android'
+title: 'Armored Squad Mechs vs Robots 1.9.3 MOD (Unlimited Coins + Skill Points)  APK For Android'
 date: 2019-12-30T21:28:00+01:00
 draft: false
 ---
 
-![Armored Squad Mechs vs Robots 1.9.3 MOD (Unlimited Coins + Skill Points)Â  APK For Android](https://i2.wp.com/apkhome.net/wp-content/uploads/2019/12/Armored-Squad-Mechs-vs-Robots-1.9.3-MOD-Unlimited-Coins-Skill-Points.png "Armored Squad Mechs vs Robots 1.9.3 MOD (Unlimited Coins + Skill Points)Â  APK For Android")
+![Armored Squad Mechs vs Robots 1.9.3 MOD (Unlimited Coins + Skill Points)  APK For Android](https://i2.wp.com/apkhome.net/wp-content/uploads/2019/12/Armored-Squad-Mechs-vs-Robots-1.9.3-MOD-Unlimited-Coins-Skill-Points.png "Armored Squad Mechs vs Robots 1.9.3 MOD (Unlimited Coins + Skill Points)  APK For Android")
 
   
 
-Armored Squad Mechs vs Robots 1.9.3 MOD (Unlimited Coins + Skill Points)Â  APK For Android
+Armored Squad Mechs vs Robots 1.9.3 MOD (Unlimited Coins + Skill Points)  APK For Android
 
 Armored Squad is a team shooter with cartoon-style graphics where mechas and robots compete.  
 Challenge your friends in unforgettable online PVP battles!  
@@ -24,11 +24,11 @@ Unlock three difficulty levels.
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: Unlimited Coins + Skill Points**
 
-Download Armored Squad Mechs vs Robots 1.9.3 MOD (Unlimited Coins + Skill Points)Â  APK For Android
+Download Armored Squad Mechs vs Robots 1.9.3 MOD (Unlimited Coins + Skill Points)  APK For Android
 ===================================================================================================
 
 Additional Information

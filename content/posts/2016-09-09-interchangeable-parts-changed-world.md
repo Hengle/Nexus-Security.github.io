@@ -6,9 +6,9 @@ draft: false
 
 ![Illustration entitled ](https://ichef.bbci.co.uk/news/320/cpsprodpb/FCA4/production/_108767646_976675gettyimages-188003415.jpg)Image copyright Getty Images
 
-One sweltering afternoon in July 1785, officials, dignitaries and a few infuriated gunsmiths gathered at the Château de Vincennes, a splendid castle to the east of Paris.
+One sweltering afternoon in July 1785, officials, dignitaries and a few infuriated gunsmiths gathered at the Chteau de Vincennes, a splendid castle to the east of Paris.
 
-They were there to see the demonstration of a new type of flintlock musket designed by Honoré Blanc, a gunsmith from Avignon so despised by his fellow makers, that he had been holed away in the dungeons of the château for his own protection.
+They were there to see the demonstration of a new type of flintlock musket designed by Honoré Blanc, a gunsmith from Avignon so despised by his fellow makers, that he had been holed away in the dungeons of the chteau for his own protection.
 
 Down in the cool of the castle cellars, Monsieur Blanc produced 50 locks - the lock being the firing mechanism at the heart of a flintlock weapon.
 

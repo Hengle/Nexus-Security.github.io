@@ -1,14 +1,14 @@
 ---
-title: 'Minion Rush Despicable Me Official Game 7.0.0h APK + MOD (Free Purchase + Anti ban)Â  APK For Android'
+title: 'Minion Rush Despicable Me Official Game 7.0.0h APK + MOD (Free Purchase + Anti ban)  APK For Android'
 date: 2020-01-23T17:00:00+01:00
 draft: false
 ---
 
-![Minion Rush Despicable Me Official Game 7.0.0h APK + MOD (Free Purchase + Anti ban)Â  APK For Android](https://i1.wp.com/apkhome.net/wp-content/uploads/2020/01/Minion-Rush-Despicable-Me-Official-Game-7.0.0h-APK-MOD-Free-Purchase-Anti-ban.png "Minion Rush Despicable Me Official Game 7.0.0h APK + MOD (Free Purchase + Anti ban)Â  APK For Android")
+![Minion Rush Despicable Me Official Game 7.0.0h APK + MOD (Free Purchase + Anti ban)  APK For Android](https://i1.wp.com/apkhome.net/wp-content/uploads/2020/01/Minion-Rush-Despicable-Me-Official-Game-7.0.0h-APK-MOD-Free-Purchase-Anti-ban.png "Minion Rush Despicable Me Official Game 7.0.0h APK + MOD (Free Purchase + Anti ban)  APK For Android")
 
   
 
-Minion Rush Despicable Me Official Game 7.0.0h APK + MOD (Free Purchase + Anti ban)Â  APK For Android
+Minion Rush Despicable Me Official Game 7.0.0h APK + MOD (Free Purchase + Anti ban)  APK For Android
 
 MORE THAN 900 MILLION PLAYERS HAVE RUN ON MINION RUSH. JOIN THIS BAD ADVENTURE!
 
@@ -33,11 +33,11 @@ Iconic places
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: Free Purchase + Anti ban**
 
-Download Minion Rush Despicable Me Official Game 7.0.0h APK + MOD (Free Purchase + Anti ban)Â  APK For Android
+Download Minion Rush Despicable Me Official Game 7.0.0h APK + MOD (Free Purchase + Anti ban)  APK For Android
 ==============================================================================================================
 
 **Original version**

@@ -4,11 +4,11 @@ date: 2019-12-15T11:24:00+01:00
 draft: false
 ---
 
-![Auto Chess 0.8.0 MOD + DATA (Free card purchases during matches)Â  APK For Android](https://i1.wp.com/apkhome.net/wp-content/uploads/2019/12/Auto-Chess-0.8.0-MOD-DATA-Free-card-purchases-during-matches.png "Auto Chess 0.8.0 MOD + DATA (Free card purchases during matches)Â  APK For Android")
+![Auto Chess 0.8.0 MOD + DATA (Free card purchases during matches)  APK For Android](https://i1.wp.com/apkhome.net/wp-content/uploads/2019/12/Auto-Chess-0.8.0-MOD-DATA-Free-card-purchases-during-matches.png "Auto Chess 0.8.0 MOD + DATA (Free card purchases during matches)  APK For Android")
 
   
 
-Auto Chess 0.8.0 MOD + DATA (Free card purchases during matches)Â  APK For Android
+Auto Chess 0.8.0 MOD + DATA (Free card purchases during matches)  APK For Android
 
 Auto Chess is a brand new highly competitive online multiplayer strategy game created by Drodo and Dragonest Co.Ltd, published and technically supported by Dragonest Co.Ltd. Players will build their own economy system and use unique units to fight each other in a permanent 8 player scenario. Compete against your strategy skills against 7 other players at the same time and show your skills to adapt your strategies in real time. ImbaTV will manage the Auto Chess world esports tournaments. No matter where you come from, you can challenge the best players around the world. The best eSports Auto Chess league in the world is waiting for you!
 
@@ -24,12 +24,12 @@ Players will randomly get their heroes from the card sharing pool and form speci
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: Free card purchases during matches  
 **
 
-Download Auto Chess 0.8.0 MOD + DATA (Free card purchases during matches)Â  APK For Android
+Download Auto Chess 0.8.0 MOD + DATA (Free card purchases during matches)  APK For Android
 ===========================================================================================
 
 **MOD**

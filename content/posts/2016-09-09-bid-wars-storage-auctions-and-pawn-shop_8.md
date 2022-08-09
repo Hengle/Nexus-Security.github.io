@@ -1,32 +1,32 @@
 ---
-title: 'Bid Wars Storage Auctions and Pawn Shop Tycoon 2.24 MOD (Unlimited Money)Â  APK For Android'
+title: 'Bid Wars Storage Auctions and Pawn Shop Tycoon 2.24 MOD (Unlimited Money)  APK For Android'
 date: 2019-12-08T20:42:00+01:00
 draft: false
 ---
 
-![Bid Wars Storage Auctions and Pawn Shop Tycoon 2.24 MOD (Unlimited Money)Â  APK For Android](https://i1.wp.com/apkhome.net/wp-content/uploads/2019/12/Bid-Wars-Storage-Auctions-and-Pawn-Shop-Tycoon-1.png "Bid Wars Storage Auctions and Pawn Shop Tycoon 2.24 MOD (Unlimited Money)Â  APK For Android")
+![Bid Wars Storage Auctions and Pawn Shop Tycoon 2.24 MOD (Unlimited Money)  APK For Android](https://i1.wp.com/apkhome.net/wp-content/uploads/2019/12/Bid-Wars-Storage-Auctions-and-Pawn-Shop-Tycoon-1.png "Bid Wars Storage Auctions and Pawn Shop Tycoon 2.24 MOD (Unlimited Money)  APK For Android")
 
   
 
-Bid Wars Storage Auctions and Pawn Shop Tycoon 2.24 MOD (Unlimited Money)Â  APK For Android
+Bid Wars Storage Auctions and Pawn Shop Tycoon 2.24 MOD (Unlimited Money)  APK For Android
 
 The biggest risks always lead to the biggest gains, but only a few daring will become a tycoon of the storage games! Invest in the world of huge garage auction, run your own pawn shop and build your reputation as the smartest and fastest bidder! Use your strategy to maximize your profit with the smallest offer! Will you take the risk and become the big winner? Go there once, go a second time ... Sold to the very first who becomes rich in this simulator of paris!
 
 **Features:**  
 \* SURCHARGE on your opponents at exciting storage auctions with your strategy! Time is money, you only have a few moments to make a decision: use your intuition and be faster than your rivals! Invest wisely your dollars and become the ultimate tycoon of the auction!
 
-\* COLLECT hundreds of items from various warehouses: you can find everything from old basketballs to rare antiques and even foreign artifacts! Sell ââthem in your pawn shop and get cash to continue the bidding wars!
+\* COLLECT hundreds of items from various warehouses: you can find everything from old basketballs to rare antiques and even foreign artifacts! Sell them in your pawn shop and get cash to continue the bidding wars!
 
 \* ENJOY your most daring choices and be invited to the most exclusive auctions in many different cities! Earn money from your victory in this storage war game!
 
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: Unlimited Money**
 
-Download Bid Wars Storage Auctions and Pawn Shop Tycoon 2.24 MOD (Unlimited Money)Â  APK For Android
+Download Bid Wars Storage Auctions and Pawn Shop Tycoon 2.24 MOD (Unlimited Money)  APK For Android
 ====================================================================================================
 
 Additional Information

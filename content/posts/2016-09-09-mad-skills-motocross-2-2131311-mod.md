@@ -19,13 +19,13 @@ Mad Skills Motocross 2 has the best physical qualities of any scrolling racing g
 12 DIFFERENT MOTORCYCLES!  
 Prove yourself on 12 different motorcycles, with different speeds and grips. Take the fastest and dominate your friends!
 
-A BRAND NEW âVERSUSâ PLAYER vs. PLAYER MODE  
+A BRAND NEW VERSUS PLAYER vs. PLAYER MODE  
 It is absolutely insane. Choose a friend (or a random opponent), a circuit, and achieve the best lap time in two minutes. Then wait to see if he can do better at the same time. Earn XP to level up and take advantage of fantastic virtual gifts.
 
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: Unlocked**
 

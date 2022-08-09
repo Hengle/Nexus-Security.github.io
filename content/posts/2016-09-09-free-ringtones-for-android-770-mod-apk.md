@@ -10,9 +10,9 @@ draft: false
 
 Free Ringtones for Android 7.7.0 Mod APK For Android
 
-Free Ringtones for Android â¢ helps you easily personalize your phone with new music ringtones and HD wallpapers. Over 30 million people use the best ringtones, sounds and wallpapers in Free Ringtones for Android â¢. Find out why. Download your free music ringtones and wallpapers and set a new ringtone now.  
+Free Ringtones for Android ¢ helps you easily personalize your phone with new music ringtones and HD wallpapers. Over 30 million people use the best ringtones, sounds and wallpapers in Free Ringtones for Android ¢. Find out why. Download your free music ringtones and wallpapers and set a new ringtone now.  
 **Characteristics:**  
-\* Set as ringtone for Android â¢ / contact ringtone / alarm sound / SMS sound  
+\* Set as ringtone for Android ¢ / contact ringtone / alarm sound / SMS sound  
 \* Set the timer to play the sound  
 \* Set the favorite sounds widget button on your phone's home screen  
 \* Many categories to choose from.  
@@ -20,7 +20,7 @@ Free Ringtones for Android â¢ helps you easily personalize your phone with n
 **Supported Android**  
 {4.1 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 Download Free Ringtones for Android 7.7.0 Mod APK For Android
 =============================================================

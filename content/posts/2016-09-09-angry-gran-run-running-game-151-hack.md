@@ -19,9 +19,9 @@ Forget the temple, the jungles and the subway stations - the cities of New York 
 For More Info
 
 **Supported Android**  
-{3.0Â and UP}  
+{3.0 and UP}  
 Supported Android Version:-  
-Honeycomb (3.0â"3.2.6)- Ice Cream Sandwich (4.0â"4.0.4)- Jelly Bean (4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) or UP
+Honeycomb (3.0"3.2.6)- Ice Cream Sandwich (4.0"4.0.4)- Jelly Bean (4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) or UP
 
 Hack MOD Unlimited Shopping
 

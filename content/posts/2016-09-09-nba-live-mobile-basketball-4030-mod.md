@@ -15,18 +15,18 @@ Choose your path to greatness and build your super team in an all-new season of 
 SUPERSTARS have taken over Season 4. Build your team around SUPERSTAR players with special abilities and traits. Collect current and classic legendary players, courts, jerseys, and unique boosters to build your team. Capture the spotlight and create your legacy your way.
 
 SUPERSTARS TAKE OVER  
-This all-new player type allows you to collect some of the NBAâs greatest players and enhance them throughout the season. Unlock SUPERSTARS like Joel Embiid and continue to increase their OVR all season. SUPERSTARS have special abilities and traits, and are the core of any team â" including yours.
+This all-new player type allows you to collect some of the NBAs greatest players and enhance them throughout the season. Unlock SUPERSTARS like Joel Embiid and continue to increase their OVR all season. SUPERSTARS have special abilities and traits, and are the core of any team " including yours.
 
 DRAFT YOUR TEAM  
-Start the season right with our all-new team building experience. Choose your team and pick a SUPERSTAR to lead them team to victory. Based on your DRAFT RANK, earned in SEASON 3 of EA SPORTS NBA LIVE Mobile, unlock additional supporting players and BOOSTS. Donât worry if you missed SEASON 3, youâll still get your choice of SUPERSTAR.
+Start the season right with our all-new team building experience. Choose your team and pick a SUPERSTAR to lead them team to victory. Based on your DRAFT RANK, earned in SEASON 3 of EA SPORTS NBA LIVE Mobile, unlock additional supporting players and BOOSTS. Dont worry if you missed SEASON 3, youll still get your choice of SUPERSTAR.
 
 INCREASE YOUR POWER RANKING  
-EA SPORTS NBA LIVE Mobile introduces its first ever permanent lineup. Our Multi-Year Lineup will allow you to play with any player youâve earned, together on one team. Use your Multi-Year Lineup in our POWER RANKING campaign to climb the ranks and prove that youâve built the most dominant team of all time!
+EA SPORTS NBA LIVE Mobile introduces its first ever permanent lineup. Our Multi-Year Lineup will allow you to play with any player youve earned, together on one team. Use your Multi-Year Lineup in our POWER RANKING campaign to climb the ranks and prove that youve built the most dominant team of all time!
 
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: Unlimited Money**
 

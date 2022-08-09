@@ -1,14 +1,14 @@
 ---
-title: 'Iron Marines 1.5.12 MOD (Unlimited Money + Unlocked)Â  APK For Android'
+title: 'Iron Marines 1.5.12 MOD (Unlimited Money + Unlocked)  APK For Android'
 date: 2019-12-27T16:56:00+01:00
 draft: false
 ---
 
-![Iron Marines 1.5.12 MOD (Unlimited Money + Unlocked)Â  APK For Android](https://i1.wp.com/apkhome.net/wp-content/uploads/2019/12/Iron-Marines.png "Iron Marines 1.5.12 MOD (Unlimited Money + Unlocked)Â  APK For Android")
+![Iron Marines 1.5.12 MOD (Unlimited Money + Unlocked)  APK For Android](https://i1.wp.com/apkhome.net/wp-content/uploads/2019/12/Iron-Marines.png "Iron Marines 1.5.12 MOD (Unlimited Money + Unlocked)  APK For Android")
 
   
 
-Iron Marines 1.5.12 MOD (Unlimited Money + Unlocked)Â  APK For Android
+Iron Marines 1.5.12 MOD (Unlimited Money + Unlocked)  APK For Android
 
 From the creators of the award-winning Kingdom Rush trilogy, this is now the most extraordinary space odyssey. An intense and dynamic strategy game, in real time that will transport you to extraordinary and unknown planets. An immersive and engaging game experience, grotesquely appealing graphics, and a touch of silly humor. Brave soldiers, formidable mechs and powerful aliens await your orders to meet the greatest challenges.
 
@@ -23,11 +23,11 @@ Unlock Impossible mode. Only for the most daring daring. We challenge you doubly
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: Unlimited Money + Unlocked**
 
-Download Iron Marines 1.5.12 MOD (Unlimited Money + Unlocked)Â  APK For Android
+Download Iron Marines 1.5.12 MOD (Unlimited Money + Unlocked)  APK For Android
 ===============================================================================
 
 Additional Information

@@ -1,18 +1,18 @@
 ---
-title: 'Cuties 6.0.4 MOD (Free Shopping)Â  APK For Android'
+title: 'Cuties 6.0.4 MOD (Free Shopping)  APK For Android'
 date: 2019-12-29T17:28:00+01:00
 draft: false
 ---
 
-![Cuties 6.0.4 MOD (Free Shopping)Â  APK For Android](https://i0.wp.com/apkhome.net/wp-content/uploads/2019/12/Cuties-6.0.4-MOD-Free-Shopping.png "Cuties 6.0.4 MOD (Free Shopping)Â  APK For Android")
+![Cuties 6.0.4 MOD (Free Shopping)  APK For Android](https://i0.wp.com/apkhome.net/wp-content/uploads/2019/12/Cuties-6.0.4-MOD-Free-Shopping.png "Cuties 6.0.4 MOD (Free Shopping)  APK For Android")
 
   
 
-Cuties 6.0.4 MOD (Free Shopping)Â  APK For Android
+Cuties 6.0.4 MOD (Free Shopping)  APK For Android
 
 Beyond the confines of our world live tiny furry creatures called Blackies. They never give up and always try to improve. Above all they appreciate logical thinking and skill. Blackies always manage to find time in their life for a good puzzle. In a way, the life of the Blackies is a puzzle game. No matter what they think, no matter what they dream of doing, they always adhere scrupulously to the rules of their game:
 
-Rule n Â° 1: jump over your neighbor  
+Rule n ° 1: jump over your neighbor  
 Rule # 2: Only One Blackie Left
 
 And each time they start playing, the Blackies start jumping recklessly, each hoping to be the last to stay on the square with the flag.  
@@ -21,11 +21,11 @@ By finding the solution from one puzzle to another, the Blackies develop their l
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: Free Shopping**
 
-Download Cuties 6.0.4 MOD (Free Shopping)Â  APK For Android
+Download Cuties 6.0.4 MOD (Free Shopping)  APK For Android
 ===========================================================
 
 Additional Information

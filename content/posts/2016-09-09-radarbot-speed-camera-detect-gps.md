@@ -10,12 +10,12 @@ draft: false
 
 Radarbot Speed Camera Detect, GPS & Speedometer Pro 7.0.9 APK For Android
 
-The radar expert application n Â° 1. Radarbot is your travel partner specialized in speed cameras which you can use in combination with your favorite GPS navigator to avoid surprises on the road. Increase the efficiency of your browser and detect 100% of fixed and mobile speed cameras. With Radarbot, you don't need to be focused on speed cameras or speed limits on the road, so you can focus on what's on the road.
+The radar expert application n ° 1. Radarbot is your travel partner specialized in speed cameras which you can use in combination with your favorite GPS navigator to avoid surprises on the road. Increase the efficiency of your browser and detect 100% of fixed and mobile speed cameras. With Radarbot, you don't need to be focused on speed cameras or speed limits on the road, so you can focus on what's on the road.
 
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 Download Radarbot Speed Camera Detect, GPS & Speedometer Pro 7.0.9 APK For Android
 ==================================================================================

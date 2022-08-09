@@ -13,22 +13,22 @@ AWP Mode Elite online 3D FPS 1.3.6 MOD (Unlimited Ammo) APK For Android
 Do you love online shooters and always go for the sniper rifle? Prepare for epic sniper games against other players. No other pistol allowed! A huge arsenal of dozens of sniper rifles and many heroes to choose from will make your itchy trigger finger happy  
 Snipe other players into online battles and play with friends! Show the world that you are the sharpest shot online, even against top sniper pros.
 
-\* Huge arsenal â¯â¯â¯  
+\* Huge arsenal ¯¯¯  
 Exclusive sniper rifles of all calibers, from Mosin - Nagant, to CVD and M24. Prepare and show the competition what a real 3D sniper looks like.
 
-\* Different cards â¯â¯â¯  
+\* Different cards ¯¯¯  
 Lots of cards with special Easter eggs, loot chests, helicopters, blasting barrels and other secrets that you and your team can use to gain the upper hand and dominate in online shooter games!
 
-\* Upgrades â¯â¯â¯  
+\* Upgrades ¯¯¯  
 All kinds of sniper rifle accessories, goggles and mufflers, to other different useful improvements.
 
-\* fresh skins â¯â¯â¯  
+\* fresh skins ¯¯¯  
 Customize your pistols to suit your style with tons of skins and awesome straps. Show other players what you're up to in online sniper games.
 
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: Unlimited Ammo**
 

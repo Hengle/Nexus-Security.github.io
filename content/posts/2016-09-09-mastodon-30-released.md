@@ -294,7 +294,7 @@ Translators
 *   shioko (_Chinese Simplified_)
 *   Emyn Nant Nefydd (_Welsh_)
 *   Sasha Sorokin (_Russian_)
-*   Tiago Epifânio (_Portuguese_)
+*   Tiago Epifnio (_Portuguese_)
 *   dxwc (_Bengali_)
 *   liffon (_Swedish_)
 *   Evgeny Petrov (_Russian_)

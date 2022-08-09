@@ -34,7 +34,7 @@ Filtros de spam, sistemas de detecção de phishing e software de segurança rel
 Firewall avançado  
 Se um usuário abre um anexo mal-intencionado ou clica em um link para um download drive-by, um firewall de rede avançado oferece a chance de interromper o ataque sinalizando o executável enquanto ele tenta passar.  
 Detecção de malware  
-Para emails com anexos maliciosos, a análise estática e dinâmica pode detectar indicadores de que o documento está tentando baixar e executar um arquivo executável.  
+Para emails com anexos maliciosos, a análise estática e dinmica pode detectar indicadores de que o documento está tentando baixar e executar um arquivo executável.  
 Treinamento de conscientização do usuário  
 Faça da simulação de phishing parte do treinamento de conscientização de segurança.  
 Backup  

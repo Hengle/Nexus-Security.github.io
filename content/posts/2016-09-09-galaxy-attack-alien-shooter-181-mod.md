@@ -1,14 +1,14 @@
 ---
-title: 'Galaxy Attack Alien Shooter 18.1 MOD (Infinite Crystals + Money)Â  APK For Android'
+title: 'Galaxy Attack Alien Shooter 18.1 MOD (Infinite Crystals + Money)  APK For Android'
 date: 2019-12-07T03:42:00+01:00
 draft: false
 ---
 
-![Galaxy Attack Alien Shooter 18.1 MOD (Infinite Crystals + Money)Â  APK For Android](https://i1.wp.com/apkhome.net/wp-content/uploads/2019/11/Galaxy-Attack-Alien-Shooter-3.png "Galaxy Attack Alien Shooter 18.1 MOD (Infinite Crystals + Money)Â  APK For Android")
+![Galaxy Attack Alien Shooter 18.1 MOD (Infinite Crystals + Money)  APK For Android](https://i1.wp.com/apkhome.net/wp-content/uploads/2019/11/Galaxy-Attack-Alien-Shooter-3.png "Galaxy Attack Alien Shooter 18.1 MOD (Infinite Crystals + Money)  APK For Android")
 
   
 
-Galaxy Attack Alien Shooter 18.1 MOD (Infinite Crystals + Money)Â  APK For Android
+Galaxy Attack Alien Shooter 18.1 MOD (Infinite Crystals + Money)  APK For Android
 
 The last hope of the Earth is in your hands, so take control of the only space station and protect the Earth from alien clouds. Your objective presents a certain challenge since you will have to protect the Universe against enemies. In this game, you will meet a very large number of enemies in dangerous places. As you progress through the game, you will earn the right to evolve your spaceship to give it all its lethal power.
 
@@ -24,11 +24,11 @@ The last hope of the Earth is in your hands, so take control of the only space s
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: Infinite Crystals + Money**
 
-Download Galaxy Attack Alien Shooter 18.1 MOD (Infinite Crystals + Money)Â  APK For Android
+Download Galaxy Attack Alien Shooter 18.1 MOD (Infinite Crystals + Money)  APK For Android
 ===========================================================================================
 
 Additional Information

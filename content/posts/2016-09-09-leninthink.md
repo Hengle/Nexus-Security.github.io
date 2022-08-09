@@ -183,7 +183,7 @@ There is no space to address such questions here. My point is that they need to 
 **Gary Saul Morson**, the Lawrence B. Dumas Professor of the Arts and Humanities at Northwestern University, co-authored, with Morton Schapiro, _Cents and Sensibility_ (Princeton).
 
 This article originally appeared in The New Criterion, Volume 38 Number 2, on page 4  
-Copyright Â© 2019 The New Criterion | https://ift.tt/ZGbysW  
+Copyright © 2019 The New Criterion | https://ift.tt/ZGbysW  
 [https://newcriterion.com//issues/2019/10/leninthink](https://newcriterion.com/issues/2019/10/leninthink "https://newcriterion.com//issues/2019/10/leninthink")
 
   

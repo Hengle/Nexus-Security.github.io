@@ -13,7 +13,7 @@ Sleep Cycle Sleep analysis & Smart alarm clock Premium 3.7.0.4096 APK For Androi
 Relax, sleep better and wake up rested with Sleep Cycle, the smart alarm clock. Track sleep from bedtime to morning and get a detailed analysis with the app that makes it easy to wake up in the morning.  
 **Characteristics:**  
 \* Trends in long-term sleep monitoring  
-\* Compare your sleep data to global sleep statistics â¢ Snoring trends - view historical snoring trends  
+\* Compare your sleep data to global sleep statistics ¢ Snoring trends - view historical snoring trends  
 \* Sleep aid - helps you fall asleep more easily  
 \* Sleep notes - see how things like drinking coffee, getting stressed, getting tired or eating late affect your sleep quality  
 \* Wake-up mood - see how the sleep cycle affects your wake-up mood  
@@ -22,7 +22,7 @@ Relax, sleep better and wake up rested with Sleep Cycle, the smart alarm clock. 
 **Supported Android**  
 {6.0 and UP}  
 **Supported Android Version**:-  
-Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 Download Sleep Cycle Sleep analysis & Smart alarm clock Premium 3.7.0.4096 APK For Android
 ==========================================================================================

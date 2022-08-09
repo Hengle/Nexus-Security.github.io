@@ -10,7 +10,7 @@ draft: false
 
 Call of Duty Mobile 1.0.10 APK + MOD (Mega Mod) APK For Android
 
-Official CALL OF DUTYÂ® designed exclusively for mobile devices. Browse iconic Multiplayer maps and modes where you want, when you want. A 100 player Battle Royale mode? Fast 5v5 team death matches? Terrifying Zombies? Sniper vs. sniper clashes? It's all in CALL OF DUTYÂ®: MOBILE, the free game from Activision.
+Official CALL OF DUTY® designed exclusively for mobile devices. Browse iconic Multiplayer maps and modes where you want, when you want. A 100 player Battle Royale mode? Fast 5v5 team death matches? Terrifying Zombies? Sniper vs. sniper clashes? It's all in CALL OF DUTY®: MOBILE, the free game from Activision.
 
 FREE MOBILE GAME
 
@@ -18,16 +18,16 @@ A game worthy of a console on your phone with the possibility of personalizing t
 
 GAME MODES AND ICONIC CARDS
 
-Play Call of DutyÂ®: Black Ops and Call of DutyÂ®: Modern WarfareÂ® Multiplayer cards, available for free for the first time. Form a squad with your friends to participate in a gigantic Battle Royale that can welcome up to 100 players. Join millions of other players for a fun and unique experience!
+Play Call of Duty®: Black Ops and Call of Duty®: Modern Warfare® Multiplayer cards, available for free for the first time. Form a squad with your friends to participate in a gigantic Battle Royale that can welcome up to 100 players. Join millions of other players for a fun and unique experience!
 
 PERSONALIZE YOUR EQUIPMENT
 
-By playing CALL OF DUTYÂ®: MOBILE, you can unlock characters, weapons, outfits, points series and pieces of equipment that will allow you to customize your equipment. Test this equipment in combat in multiplayer PvP modes, such as 5v5 Team Deathmatch, First Line, General Melee, Search and Destroy, Sniper Clashes and Battle Royale Mode
+By playing CALL OF DUTY®: MOBILE, you can unlock characters, weapons, outfits, points series and pieces of equipment that will allow you to customize your equipment. Test this equipment in combat in multiplayer PvP modes, such as 5v5 Team Deathmatch, First Line, General Melee, Search and Destroy, Sniper Clashes and Battle Royale Mode
 
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: Mega Mod**
 

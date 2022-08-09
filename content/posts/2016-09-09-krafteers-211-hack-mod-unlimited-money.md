@@ -21,7 +21,7 @@ For More Info
 **Supported Android**  
 {4.0.3 and UP}  
 Supported Android Version:-  
-Ice Cream Sandwich (4.0.3â"4.0.4)- Jelly Bean (4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) or UP
+Ice Cream Sandwich (4.0.3"4.0.4)- Jelly Bean (4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) or UP
 
 Download Krafteers 2.1.1 Hack MOD Unlimited Money APK For Android
 =================================================================

@@ -48,7 +48,7 @@ Ferramentas usadas para análise:
 \- Maltego - ["); text-decoration-line: none;" target="\_blank">https://www.paterva.com/web7/buy/maltego-clients/maltego-ce.php](https://www.paterva.com/web7/buy/maltego-clients/maltego-ce.php)  
 \-Wallet Explorer - ["); text-decoration-line: none;" target="\_blank">https://www.walletexplorer.com](https://www.walletexplorer.com/)
 
-1\. URL do site que carregava o endereço de bitcoin do estado islâmico de financiamento: jihadlove5xhyfw3.onion
+1\. URL do site que carregava o endereço de bitcoin do estado islmico de financiamento: jihadlove5xhyfw3.onion
 
 2\. Use o endereço Onion para alimentar a transformação maltego e procurar informações sobre blockchain. Encontramos um endereço de bitcoin anexado a este site '1FmLPWZjru5njVmzDV9wgzJqnMbuJUWs36'
 

@@ -1,14 +1,14 @@
 ---
-title: 'Warmup exercises flexibility training Premium 2.1.2Â  APK For Android'
+title: 'Warmup exercises flexibility training Premium 2.1.2  APK For Android'
 date: 2020-01-10T21:00:00+01:00
 draft: false
 ---
 
-![Warmup exercises flexibility training Premium 2.1.2Â  APK For Android](https://i1.wp.com/apkhome.net/wp-content/uploads/2020/01/Warmup-exercises-flexibility-training-Premium-2.1.2.png "Warmup exercises flexibility training Premium 2.1.2Â  APK For Android")
+![Warmup exercises flexibility training Premium 2.1.2  APK For Android](https://i1.wp.com/apkhome.net/wp-content/uploads/2020/01/Warmup-exercises-flexibility-training-Premium-2.1.2.png "Warmup exercises flexibility training Premium 2.1.2  APK For Android")
 
   
 
-Warmup exercises flexibility training Premium 2.1.2Â  APK For Android
+Warmup exercises flexibility training Premium 2.1.2  APK For Android
 
 We have selected the most effective exercises for excellent warm-up and stretching, as well as the morning exercises. The app contains 39 warm-up and stretching exercises for all muscle groups, allowing you to perform an excellent flexibility workout and prepare for any other type of workout.  
 **Characteristics:**  
@@ -21,9 +21,9 @@ We have selected the most effective exercises for excellent warm-up and stretchi
 **Supported Android**  
 {4.1 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
-Download Warmup exercises flexibility training Premium 2.1.2Â  APK For Android
+Download Warmup exercises flexibility training Premium 2.1.2  APK For Android
 ==============================================================================
 
 Additional Information

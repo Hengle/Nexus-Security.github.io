@@ -58,9 +58,9 @@ Até as comunicações inocentes envolvem o envio e o recebimento de informaçõ
 
 4.  Os dados estão maiores do que nunca
 
-Qualquer pressionamento de tecla em qualquer dispositivo da sua organização cria dados. Cresce exponencialmente e protuberância nas costuras. A Tecnologia da Informação trabalha na direção, gerenciamento e armazenamento. Mas, é como gerenciar o fluxo de água.
+Qualquer pressionamento de tecla em qualquer dispositivo da sua organização cria dados. Cresce exponencialmente e protuberncia nas costuras. A Tecnologia da Informação trabalha na direção, gerenciamento e armazenamento. Mas, é como gerenciar o fluxo de água.
 
-Entre os problemas de gerenciamento de dados está a diferenciação da qualidade dos dados. Não é da natureza dos dados exibir sua importância, privacidade ou prioridade de segurança. Ajudar os dados a entender sua própria importância ajudaria muito a canalizá-los e a criar níveis e limites de segurança.
+Entre os problemas de gerenciamento de dados está a diferenciação da qualidade dos dados. Não é da natureza dos dados exibir sua importncia, privacidade ou prioridade de segurança. Ajudar os dados a entender sua própria importncia ajudaria muito a canalizá-los e a criar níveis e limites de segurança.
 
 As respostas DLP individuais de tamanho único também não se diferenciam. Você precisa de soluções estratégicas que entendam a localização, direção e uso dos dados. Sua estratégia precisa criar barreiras alinhadas à natureza e qualidade dos dados e / ou seu nível de confidencialidade. Você precisa saber quem ou o que cria os dados, quem os utiliza e quem os transmite e os recebe.
 

@@ -1,14 +1,14 @@
 ---
-title: 'Internet Cafe Simulator 1.4 MOD (Unlimited money)Â  APK For Android'
+title: 'Internet Cafe Simulator 1.4 MOD (Unlimited money)  APK For Android'
 date: 2019-12-15T16:00:00+01:00
 draft: false
 ---
 
-![Internet Cafe Simulator 1.4 MOD (Unlimited money)Â  APK For Android](https://i2.wp.com/apkhome.net/wp-content/uploads/2019/11/Internet-Cafe-Simulator-2.png "Internet Cafe Simulator 1.4 MOD (Unlimited money)Â  APK For Android")
+![Internet Cafe Simulator 1.4 MOD (Unlimited money)  APK For Android](https://i2.wp.com/apkhome.net/wp-content/uploads/2019/11/Internet-Cafe-Simulator-2.png "Internet Cafe Simulator 1.4 MOD (Unlimited money)  APK For Android")
 
   
 
-Internet Cafe Simulator 1.4 MOD (Unlimited money)Â  APK For Android
+Internet Cafe Simulator 1.4 MOD (Unlimited money)  APK For Android
 
 Build the best internet cafe in the world!  
 Internet Cafe Simulator is a cybercafe business simulation game. You can set up and manage a complete workplace in the game.  
@@ -18,11 +18,11 @@ You can develop your cybercafe with many applications on the game computer. You 
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE : Unlimited money**
 
-Download Internet Cafe Simulator 1.4 MOD (Unlimited money)Â  APK For Android
+Download Internet Cafe Simulator 1.4 MOD (Unlimited money)  APK For Android
 ============================================================================
 
 Additional Information

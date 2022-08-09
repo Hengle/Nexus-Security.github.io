@@ -36,4 +36,4 @@ draft: false
 
 ![Figure 2 How Bitcoins Enter Circulation And Are Used In T Flickr - ](https://live.staticflickr.com/2869/9094469396_0f4048b062_b.jpg "Figure 2 How Bitcoins Enter Circulation And Are Used In T Flickr | How to determine valid bitcoin address") Figure 2 How Bitcoins Enter Circulation And Are Used In T Flickr
 
-![Change Bitcoin Address Coinbase éæç¡æ ãã­ã³ã® ã­ã¤ãã³ A4 - ](https://i.ytimg.com/vi/0-WLBsKL1k0/maxresdefault.jpg "Change Bitcoin Address Coinbase éæç¡æ ãã­ã³ã® ã­ã¤ãã³ A4 | How to determine valid bitcoin address") Change Bitcoin Address Coinbase éæç¡æ ã! ã­ã³ã® ã­ã¤ãã³ A4
+![Change Bitcoin Address Coinbase éæç¡æ ãã­ã³ã® ã­ã¤ãã³ A4 - ](https://i.ytimg.com/vi/0-WLBsKL1k0/maxresdefault.jpg "Change Bitcoin Address Coinbase éæç¡æ ãã­ã³ã® ã­ã¤ãã³ A4 | How to determine valid bitcoin address") Change Bitcoin Address Coinbase éæç¡æ ã! ã­ã³ã® ã­ã¤ãã³ A4

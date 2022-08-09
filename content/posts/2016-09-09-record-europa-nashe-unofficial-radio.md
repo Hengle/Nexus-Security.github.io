@@ -13,7 +13,7 @@ Record, Europa, Nashe Unofficial radio app 4.4.3 AdFree APK For Android
 This is NOT the official app of the main radio titles! The app contains the stations of the next radio titles: DFM, Radio Record, Europa Plus, Nashe, Maximum.  
 **features:**  
 \* More than 50 radio stations + new stations each update  
-\* Licensed BASS Â© audio library with impressive 32\*bit sound quality!  
+\* Licensed BASS © audio library with impressive 32\*bit sound quality!  
 \* Powerful 10\*band equalizer with additional sound settings  
 \* Net buffer settings for stable playback even without perfect internet connection  
 \* Full\*screen dock mode \* useful for listening to the car  
@@ -24,7 +24,7 @@ This is NOT the official app of the main radio titles! The app contains the stat
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 Download Record, Europa, Nashe Unofficial radio app 4.4.3 AdFree APK For Android
 ================================================================================

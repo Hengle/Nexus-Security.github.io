@@ -16,7 +16,7 @@ With Memory Cleaner Booster, improve the performance of your device by cleaning 
 \* Search the Internet for the name / package of the application  
 \* Application search, sort function  
 \* Clean Fast \* Cleaner & Booster Fastest Optimizer  
-\* Clean Master \* Speed ââup the phone  
+\* Clean Master \* Speed up the phone  
 \* Memory Cleaner, SD Card Cleaner, Large Files Finder  
 \* Big Files Finder, Storage Optimizer, Storage Cleaner  
 \* Super Cleaner, Photo Cleaner  
@@ -25,7 +25,7 @@ With Memory Cleaner Booster, improve the performance of your device by cleaning 
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 Download SD Card Cleanner 1.2 Mod Ads-Free APK For Android
 ==========================================================

@@ -1,14 +1,14 @@
 ---
-title: 'Lilys Garden 1.47.0 MOD (Unlimited Gold Coins + Star)Â  APK For Android'
+title: 'Lilys Garden 1.47.0 MOD (Unlimited Gold Coins + Star)  APK For Android'
 date: 2020-01-25T01:42:00+01:00
 draft: false
 ---
 
-![Lilys Garden 1.47.0 MOD (Unlimited Gold Coins + Star)Â  APK For Android](https://i1.wp.com/apkhome.net/wp-content/uploads/2020/01/Lilys-Garden-1.47.0-MOD-Unlimited-Gold-Coins-Star.png "Lilys Garden 1.47.0 MOD (Unlimited Gold Coins + Star)Â  APK For Android")
+![Lilys Garden 1.47.0 MOD (Unlimited Gold Coins + Star)  APK For Android](https://i1.wp.com/apkhome.net/wp-content/uploads/2020/01/Lilys-Garden-1.47.0-MOD-Unlimited-Gold-Coins-Star.png "Lilys Garden 1.47.0 MOD (Unlimited Gold Coins + Star)  APK For Android")
 
   
 
-Lilys Garden 1.47.0 MOD (Unlimited Gold Coins + Star)Â  APK For Android
+Lilys Garden 1.47.0 MOD (Unlimited Gold Coins + Star)  APK For Android
 
 Roll up your sleeves and play Lily's Garden, our new FREE puzzle game! Help Lily restore her former aunt's glory to her great\*aunt's garden and rediscover her roots. Immerse yourself in a story full of adventures as Lily interacts with a whole bunch of colorful characters. Sprout the seed of love between her and her beautiful neighbor, Luke, while making sure to keep her ex\*boyfriend, Blaine, at bay. Solve hundreds of unique puzzles by matching and obtaining flowers to earn stars that will help you develop your garden!
 
@@ -21,11 +21,11 @@ Roll up your sleeves and play Lily's Garden, our new FREE puzzle game! Help Lily
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: Unlimited Gold Coins + Star**
 
-Download Lilys Garden 1.47.0 MOD (Unlimited Gold Coins + Star)Â  APK For Android
+Download Lilys Garden 1.47.0 MOD (Unlimited Gold Coins + Star)  APK For Android
 ================================================================================
 
 Additional Information

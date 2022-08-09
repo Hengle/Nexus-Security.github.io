@@ -12,7 +12,7 @@ HanYou Chinese Dictionary and OCR Premium 3.7.5 APK For Android
 
 HanYou is a modern offline Chinese dictionary, with many features to help you read and learn Chinese. HanYou is the perfect companion to help you read books, manga, posters, menus and improve your Chinese reading skills while enjoying your favorite reading materials.  
 **features**  
-\* Several target languages ââavailable: English, German, French and Hungarian  
+\* Several target languages available: English, German, French and Hungarian  
 \* Search for Chinese words from any type of entry: traditional / simplified / pinyins  
 \* You can also search the other way and enter foreign words in the search bar  
 \* Character input by keyboard / drawing / radicals  
@@ -23,7 +23,7 @@ HanYou is a modern offline Chinese dictionary, with many features to help you re
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 Download HanYou Chinese Dictionary and OCR Premium 3.7.5 APK For Android
 ========================================================================

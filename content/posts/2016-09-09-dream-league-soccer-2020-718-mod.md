@@ -10,7 +10,7 @@ draft: false
 
 Dream League Soccer 2020 7.18 MOD (Unlimited Money) APK For Android
 
-Dream League Soccer 2020 immerses you in the heart of the action, with new graphics and brand new functions! Build your dream team from over 3,500 FIFPro â¢ players and compete against the best football clubs in the world. Advance through 8 divisions while enjoying 3D animations in motion capture, immersive in-game commentary, team customization and much more. This game has never been so beautiful or so good!
+Dream League Soccer 2020 immerses you in the heart of the action, with new graphics and brand new functions! Build your dream team from over 3,500 FIFPro ¢ players and compete against the best football clubs in the world. Advance through 8 divisions while enjoying 3D animations in motion capture, immersive in-game commentary, team customization and much more. This game has never been so beautiful or so good!
 
 BUILD YOUR DREAM TEAM  
 Build your dream team by hiring superstar players like Luis Suarez and Gareth Bale. Perfect your style, develop your players and face the teams that stand on your way to the top of the ranking. Upgrade your stadium with world-class facilities as you progress towards the legendary division. Will you be up to it?
@@ -24,7 +24,7 @@ Feast your eyes on the most beautiful version of Dream League Soccer to date! Pe
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 **MOD TYPE: Unlimited Money**
 

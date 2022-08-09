@@ -10,7 +10,7 @@ draft: false
 
 HelloTalk Chat, Speak & Learn Foreign Languages 3.6.5 Unlocked APK For Android
 
-HelloTalk, the world's leading community for language learning and cultural exchange, puts you in touch with native speakers of other languages ââ(English, Japanese, Korean, Spanish, French, Mandarin Chinese, Cantonese, Portuguese, German, Italian, Russian, Arabic and 100 others) for free!  
+HelloTalk, the world's leading community for language learning and cultural exchange, puts you in touch with native speakers of other languages (English, Japanese, Korean, Spanish, French, Mandarin Chinese, Cantonese, Portuguese, German, Italian, Russian, Arabic and 100 others) for free!  
 **FEATURES**  
 \* Look for people whose needs correspond to yours.  
 \* Practice your target language with native speakers via text / audio / voice messages.  
@@ -21,7 +21,7 @@ HelloTalk, the world's leading community for language learning and cultural exch
 **Supported Android**  
 {4.0 and UP}  
 **Supported Android Version**:-  
-Jelly Bean(4.1â"4.3.1)- KitKat (4.4â"4.4.4)- Lollipop (5.0â"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 â" 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
+Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6.0 - 6.0.1) - Nougat (7.0 " 7.1.1) - Oreo (8.0-8.1) - Pie (9.0)
 
 Download HelloTalk Chat, Speak & Learn Foreign Languages 3.6.5 Unlocked APK For Android
 =======================================================================================
