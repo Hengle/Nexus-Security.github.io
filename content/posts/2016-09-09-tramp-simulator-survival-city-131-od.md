@@ -1,14 +1,14 @@
 ---
-title: 'Tramp Simulator Survival City 1.3.1 ÐOD (Free craft) APK For Android'
+title: 'Tramp Simulator Survival City 1.3.1  (Free craft) APK For Android'
 date: 2019-12-01T02:28:00+01:00
 draft: false
 ---
 
-![Tramp Simulator Survival City 1.3.1 ÐOD (Free craft) APK For Android](https://i0.wp.com/apkhome.net/wp-content/uploads/2019/11/Tramp-Simulator-Survival-City-1.3.1-ÐOD-Free-craft.png "Tramp Simulator Survival City 1.3.1 ÐOD (Free craft) APK For Android")
+![Tramp Simulator Survival City 1.3.1  (Free craft) APK For Android](https://i0.wp.com/apkhome.net/wp-content/uploads/2019/11/Tramp-Simulator-Survival-City-1.3.1--Free-craft.png "Tramp Simulator Survival City 1.3.1  (Free craft) APK For Android")
 
   
 
-Tramp Simulator Survival City 1.3.1 ÐOD (Free craft) APK For Android
+Tramp Simulator Survival City 1.3.1  (Free craft) APK For Android
 
 Fight for your life in the streets of the city with other tramps, search for food and money, build shelters, make weapons and tools while playing this homeless survival simulator. It's not like being a survivor who spends time on the lost tropical island: picturesque ocean, juicy fruits and good weather Today, your goal is to stay alive in a concrete jungle! Your opponents are not wild predators, tropical rains or other dangers you may face \* spend your time on the survival island \* fight the cop or hide them so you do not get caught , fly and fight to feed yourself, search the trash for weapons or useful survival tools! Check out Tramp Simulator: Survival City \* an excellent survival simulator for the homeless for those who are ready for extreme adventures! Rob, fly, hunt, fight and explore!
 
@@ -27,7 +27,7 @@ Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6
 **MOD TYPE: Free craft  
 **
 
-Download Tramp Simulator Survival City 1.3.1 ÐOD (Free craft) APK For Android
+Download Tramp Simulator Survival City 1.3.1  (Free craft) APK For Android
 ==============================================================================
 
 Additional Information

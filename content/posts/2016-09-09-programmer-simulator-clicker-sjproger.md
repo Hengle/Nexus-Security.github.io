@@ -1,14 +1,14 @@
 ---
-title: 'Programmer Simulator Clicker SJProger Simulator 1.1.8 ÐOD (Menu Mod) APK For Android'
+title: 'Programmer Simulator Clicker SJProger Simulator 1.1.8  (Menu Mod) APK For Android'
 date: 2020-02-03T08:00:00+01:00
 draft: false
 ---
 
-![Programmer Simulator Clicker SJProger Simulator 1.1.8 ÐOD (Menu Mod) APK For Android](https://i2.wp.com/apkhome.net/wp-content/uploads/2020/02/Programmer-Simulator-Clicker-SJProger-Simulator-1.1.8-ÐOD-Menu-Mod.png "Programmer Simulator Clicker SJProger Simulator 1.1.8 ÐOD (Menu Mod) APK For Android")
+![Programmer Simulator Clicker SJProger Simulator 1.1.8  (Menu Mod) APK For Android](https://i2.wp.com/apkhome.net/wp-content/uploads/2020/02/Programmer-Simulator-Clicker-SJProger-Simulator-1.1.8--Menu-Mod.png "Programmer Simulator Clicker SJProger Simulator 1.1.8  (Menu Mod) APK For Android")
 
   
 
-Programmer Simulator Clicker SJProger Simulator 1.1.8 ÐOD (Menu Mod) APK For Android
+Programmer Simulator Clicker SJProger Simulator 1.1.8  (Menu Mod) APK For Android
 
 From the teapot to the advanced programmer, create and develop your projects, earn millions and travel around the world!
 
@@ -30,7 +30,7 @@ Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6
 
 **MOD TYPE: Menu Mod**
 
-Download Programmer Simulator Clicker SJProger Simulator 1.1.8 ÐOD (Menu Mod) APK For Android
+Download Programmer Simulator Clicker SJProger Simulator 1.1.8  (Menu Mod) APK For Android
 ==============================================================================================
 
 Additional Information

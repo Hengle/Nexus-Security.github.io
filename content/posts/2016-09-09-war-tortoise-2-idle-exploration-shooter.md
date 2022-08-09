@@ -1,14 +1,14 @@
 ---
-title: 'War Tortoise 2 Idle Exploration Shooter 1.00.03.5 ÐOD (Unlimited Money) APK For Android'
+title: 'War Tortoise 2 Idle Exploration Shooter 1.00.03.5  (Unlimited Money) APK For Android'
 date: 2019-12-31T12:28:00+01:00
 draft: false
 ---
 
-![War Tortoise 2 Idle Exploration Shooter 1.00.03.5 ÐOD (Unlimited Money) APK For Android](https://i0.wp.com/apkhome.net/wp-content/uploads/2019/12/War-Tortoise-2-Idle-Exploration-Shooter-1.00.03.5-ÐOD-Unlimited-Money.png "War Tortoise 2 Idle Exploration Shooter 1.00.03.5 ÐOD (Unlimited Money) APK For Android")
+![War Tortoise 2 Idle Exploration Shooter 1.00.03.5  (Unlimited Money) APK For Android](https://i0.wp.com/apkhome.net/wp-content/uploads/2019/12/War-Tortoise-2-Idle-Exploration-Shooter-1.00.03.5--Unlimited-Money.png "War Tortoise 2 Idle Exploration Shooter 1.00.03.5  (Unlimited Money) APK For Android")
 
   
 
-War Tortoise 2 Idle Exploration Shooter 1.00.03.5 ÐOD (Unlimited Money) APK For Android
+War Tortoise 2 Idle Exploration Shooter 1.00.03.5  (Unlimited Money) APK For Android
 
 Take control of the mighty war turtle, a heavy tank armed to the teeth with powerful weapons and turrets! Explore a huge world, conquer new lands, recruit units, build defenses, collect resources and, ultimately, destroy the enemy!
 
@@ -28,7 +28,7 @@ Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6
 
 **MOD TYPE: Unlimited Money**
 
-Download War Tortoise 2 Idle Exploration Shooter 1.00.03.5 ÐOD (Unlimited Money) APK For Android
+Download War Tortoise 2 Idle Exploration Shooter 1.00.03.5  (Unlimited Money) APK For Android
 =================================================================================================
 
 Additional Information

@@ -1,14 +1,14 @@
 ---
-title: 'Ice Crush 3.8.7 ÐOD (Infinite Coins + snow balls) APK For Android'
+title: 'Ice Crush 3.8.7  (Infinite Coins + snow balls) APK For Android'
 date: 2020-01-09T03:56:00+01:00
 draft: false
 ---
 
-![Ice Crush 3.8.7 ÐOD (Infinite Coins + snow balls) APK For Android](https://i0.wp.com/apkhome.net/wp-content/uploads/2020/01/Ice-Crush-3.8.7-ÐOD-Infinite-Coins-snow-balls.png "Ice Crush 3.8.7 ÐOD (Infinite Coins + snow balls) APK For Android")
+![Ice Crush 3.8.7  (Infinite Coins + snow balls) APK For Android](https://i0.wp.com/apkhome.net/wp-content/uploads/2020/01/Ice-Crush-3.8.7--Infinite-Coins-snow-balls.png "Ice Crush 3.8.7  (Infinite Coins + snow balls) APK For Android")
 
   
 
-Ice Crush 3.8.7 ÐOD (Infinite Coins + snow balls) APK For Android
+Ice Crush 3.8.7  (Infinite Coins + snow balls) APK For Android
 
 Ice Crush is a brand new game from the creators of Garden Mania 2 Garden Mania 3!  
 Switch and swap, match 3 ice crystals, adopt and raise snowman, challenge monsters and snow elves, enigmatic face levels, except rabbits and polar bears, collect coconuts - all with strategic matching!  
@@ -28,7 +28,7 @@ Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6
 
 **MOD TYPE: Infinite Coins + snow balls**
 
-Download Ice Crush 3.8.7 ÐOD (Infinite Coins + snow balls) APK For Android
+Download Ice Crush 3.8.7  (Infinite Coins + snow balls) APK For Android
 ==============================================================================
 
 Additional Information

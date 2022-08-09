@@ -1,14 +1,14 @@
 ---
-title: 'Pocket Build 2.89 ÐOD (Free Purchases) APK For Android'
+title: 'Pocket Build 2.89  (Free Purchases) APK For Android'
 date: 2020-01-02T03:56:00+01:00
 draft: false
 ---
 
-![Pocket Build 2.89 ÐOD (Free Purchases) APK For Android](https://i2.wp.com/apkhome.net/wp-content/uploads/2019/11/Pocket-Build-2.89-ÐOD-Free-Purchases.jpg "Pocket Build 2.89 ÐOD (Free Purchases) APK For Android")
+![Pocket Build 2.89  (Free Purchases) APK For Android](https://i2.wp.com/apkhome.net/wp-content/uploads/2019/11/Pocket-Build-2.89--Free-Purchases.jpg "Pocket Build 2.89  (Free Purchases) APK For Android")
 
   
 
-Pocket Build 2.89 ÐOD (Free Purchases) APK For Android
+Pocket Build 2.89  (Free Purchases) APK For Android
 
 Have you ever wanted to create your own little imaginary world? A farm, a kind of castle, or just an epic and fantastic city? Pocket Build is an open game where you can build without limitation or restriction. Build what you want, when you want, how you want. The possibilities are limitless!
 
@@ -33,7 +33,7 @@ Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6
 **MOD TYPE: Free Purchases  
 **
 
-Download Pocket Build 2.89 ÐOD (Free Purchases) APK For Android
+Download Pocket Build 2.89  (Free Purchases) APK For Android
 ================================================================
 
 Additional Information

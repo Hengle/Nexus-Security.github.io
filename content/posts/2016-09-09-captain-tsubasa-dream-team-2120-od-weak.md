@@ -1,14 +1,14 @@
 ---
-title: 'Captain Tsubasa Dream Team 2.12.0 ÐOD (Weak Enemies + Unlimited Stamina) APK For Android'
+title: 'Captain Tsubasa Dream Team 2.12.0  (Weak Enemies + Unlimited Stamina) APK For Android'
 date: 2019-12-14T05:28:00+01:00
 draft: false
 ---
 
-![Captain Tsubasa Dream Team 2.12.0 ÐOD (Weak Enemies + Unlimited Stamina) APK For Android](https://i2.wp.com/apkhome.net/wp-content/uploads/2019/11/Captain-Tsubasa-Dream-Team-2.12.0-ÐOD-Weak-Enemies-Unlimited-Stamina.png "Captain Tsubasa Dream Team 2.12.0 ÐOD (Weak Enemies + Unlimited Stamina) APK For Android")
+![Captain Tsubasa Dream Team 2.12.0  (Weak Enemies + Unlimited Stamina) APK For Android](https://i2.wp.com/apkhome.net/wp-content/uploads/2019/11/Captain-Tsubasa-Dream-Team-2.12.0--Weak-Enemies-Unlimited-Stamina.png "Captain Tsubasa Dream Team 2.12.0  (Weak Enemies + Unlimited Stamina) APK For Android")
 
   
 
-Captain Tsubasa Dream Team 2.12.0 ÐOD (Weak Enemies + Unlimited Stamina) APK For Android
+Captain Tsubasa Dream Team 2.12.0  (Weak Enemies + Unlimited Stamina) APK For Android
 
 The all new Captain Tsubasa football game (aka Flash Kicker) is now available!  
 Choose your favorite football players, create your own dream team and compete against other users from around the world! You are the manager of your dream team!
@@ -27,7 +27,7 @@ Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6
 **MOD TYPE: Weak Enemies + Unlimited Stamina  
 **
 
-Download Captain Tsubasa Dream Team 2.12.0 ÐOD (Weak Enemies + Unlimited Stamina) APK For Android
+Download Captain Tsubasa Dream Team 2.12.0  (Weak Enemies + Unlimited Stamina) APK For Android
 ==================================================================================================
 
 Additional Information

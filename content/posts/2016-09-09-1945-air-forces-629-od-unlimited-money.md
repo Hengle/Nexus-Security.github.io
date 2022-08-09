@@ -1,14 +1,14 @@
 ---
-title: '1945 Air Forces 6.29 ÐOD (Unlimited Money + Gems) APK For Android'
+title: '1945 Air Forces 6.29  (Unlimited Money + Gems) APK For Android'
 date: 2020-01-22T22:14:00+01:00
 draft: false
 ---
 
-![1945 Air Forces 6.29 ÐOD (Unlimited Money + Gems) APK For Android](https://i2.wp.com/apkhome.net/wp-content/uploads/2020/01/1945-Air-Forces-6.29-ÐOD-Unlimited-Money-Gems.png "1945 Air Forces 6.29 ÐOD (Unlimited Money + Gems) APK For Android")
+![1945 Air Forces 6.29  (Unlimited Money + Gems) APK For Android](https://i2.wp.com/apkhome.net/wp-content/uploads/2020/01/1945-Air-Forces-6.29--Unlimited-Money-Gems.png "1945 Air Forces 6.29  (Unlimited Money + Gems) APK For Android")
 
   
 
-1945 Air Forces 6.29 ÐOD (Unlimited Money + Gems) APK For Android
+1945 Air Forces 6.29  (Unlimited Money + Gems) APK For Android
 
 This classic shooter from the 90s in line with the 1941, 1942, 1943, 1944 and 19xx versions has been redesigned for smartphones. With a simple concept and endless playful potential, 1945 Air Force is now available on your mobile device to provide hours of entertainment.  
 1945 Air Force is a superb remake of the classic arcade experience! With its easy\*to\*learn and easy\*to\*use controls, relive the old school sensations of arcade games.
@@ -28,7 +28,7 @@ Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6
 
 **MOD TYPE: Unlimited Money + Gems**
 
-Download 1945 Air Forces 6.29 ÐOD (Unlimited Money + Gems) APK For Android
+Download 1945 Air Forces 6.29  (Unlimited Money + Gems) APK For Android
 ===========================================================================
 
 Additional Information

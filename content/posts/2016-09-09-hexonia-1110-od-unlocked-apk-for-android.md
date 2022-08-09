@@ -1,14 +1,14 @@
 ---
-title: 'Hexonia 1.1.10 ÐOD (Unlocked) APK For Android'
+title: 'Hexonia 1.1.10  (Unlocked) APK For Android'
 date: 2019-12-31T01:42:00+01:00
 draft: false
 ---
 
-![Hexonia 1.1.10 ÐOD (Unlocked) APK For Android](https://i0.wp.com/apkhome.net/wp-content/uploads/2019/11/Hexonia-1.1.10-ÐOD-Unlocked.png "Hexonia 1.1.10 ÐOD (Unlocked) APK For Android")
+![Hexonia 1.1.10  (Unlocked) APK For Android](https://i0.wp.com/apkhome.net/wp-content/uploads/2019/11/Hexonia-1.1.10--Unlocked.png "Hexonia 1.1.10  (Unlocked) APK For Android")
 
   
 
-Hexonia 1.1.10 ÐOD (Unlocked) APK For Android
+Hexonia 1.1.10  (Unlocked) APK For Android
 
 Choose a tribe and build your kingdom. Conquer villages and cities to expand your lands. Learn new technologies to increase your gold earnings and prepare your army. Warriors, knights, cannons, battleships and many more units to choose from!  
 Propose new strategies to defeat your opponents and win a glorious victory!
@@ -28,7 +28,7 @@ Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6
 **MOD TYPE: Unlocked  
 **
 
-Download Hexonia 1.1.10 ÐOD (Unlocked) APK For Android
+Download Hexonia 1.1.10  (Unlocked) APK For Android
 =======================================================
 
 Additional Information

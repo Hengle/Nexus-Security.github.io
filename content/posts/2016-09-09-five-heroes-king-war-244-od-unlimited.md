@@ -1,14 +1,14 @@
 ---
-title: 'Five Heroes The King''s War 2.4.4 ÐOD (Unlimited Gold Coins + Diamonds) APK For Android'
+title: 'Five Heroes The King''s War 2.4.4  (Unlimited Gold Coins + Diamonds) APK For Android'
 date: 2020-01-02T04:00:00+01:00
 draft: false
 ---
 
-![Five Heroes The King](https://i0.wp.com/apkhome.net/wp-content/uploads/2019/11/Five-Heroes-The-Kings-War-2.4.4-ÐOD-Unlimited-Gold-Coins-Diamonds.png "Five Heroes The King")
+![Five Heroes The King](https://i0.wp.com/apkhome.net/wp-content/uploads/2019/11/Five-Heroes-The-Kings-War-2.4.4--Unlimited-Gold-Coins-Diamonds.png "Five Heroes The King")
 
   
 
-Five Heroes The King's War 2.4.4 ÐOD (Unlimited Gold Coins + Diamonds) APK For Android
+Five Heroes The King's War 2.4.4  (Unlimited Gold Coins + Diamonds) APK For Android
 
 You are an experienced warlord and our country needs you.
 
@@ -25,7 +25,7 @@ Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6
 **MOD TYPE: Unlimited Gold Coins + Diamonds  
 **
 
-Download Five Heroes The King's War 2.4.4 ÐOD (Unlimited Gold Coins + Diamonds) APK For Android
+Download Five Heroes The King's War 2.4.4  (Unlimited Gold Coins + Diamonds) APK For Android
 ================================================================================================
 
 Additional Information

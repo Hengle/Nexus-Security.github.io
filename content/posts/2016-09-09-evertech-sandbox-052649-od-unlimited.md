@@ -1,14 +1,14 @@
 ---
-title: 'Evertech Sandbox 0.52.649 ÐOD (Unlimited Money) APK For Android'
+title: 'Evertech Sandbox 0.52.649  (Unlimited Money) APK For Android'
 date: 2019-12-28T01:42:00+01:00
 draft: false
 ---
 
-![Evertech Sandbox 0.52.649 ÐOD (Unlimited Money) APK For Android](https://i1.wp.com/apkhome.net/wp-content/uploads/2019/11/Evertech-Sandbox-0.52.649-ÐOD-Unlimited-Money.png "Evertech Sandbox 0.52.649 ÐOD (Unlimited Money) APK For Android")
+![Evertech Sandbox 0.52.649  (Unlimited Money) APK For Android](https://i1.wp.com/apkhome.net/wp-content/uploads/2019/11/Evertech-Sandbox-0.52.649--Unlimited-Money.png "Evertech Sandbox 0.52.649  (Unlimited Money) APK For Android")
 
   
 
-Evertech Sandbox 0.52.649 ÐOD (Unlimited Money) APK For Android
+Evertech Sandbox 0.52.649  (Unlimited Money) APK For Android
 
 Evertech Sandbox is a new game in which you can build complex mechanisms from basic blocks. Your inventory contains many items, such as engine, thrusters, wheels, paint tool, connection tool, different blocks. Take them and create something that moves. You can build vehicles, lifts, trains, robots.  
 You can save your work and share it with others.
@@ -25,7 +25,7 @@ Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6
 **MOD TYPE: Unlimited Money  
 **
 
-Download Evertech Sandbox 0.52.649 ÐOD (Unlimited Money) APK For Android
+Download Evertech Sandbox 0.52.649  (Unlimited Money) APK For Android
 =========================================================================
 
 Additional Information

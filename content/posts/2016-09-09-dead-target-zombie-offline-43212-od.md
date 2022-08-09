@@ -1,14 +1,14 @@
 ---
-title: 'DEAD TARGET Zombie Offline 4.32.1.2 ÐOD (Infinite Gold + Cash + Ads Removed) APK For Android'
+title: 'DEAD TARGET Zombie Offline 4.32.1.2  (Infinite Gold + Cash + Ads Removed) APK For Android'
 date: 2020-01-17T04:42:00+01:00
 draft: false
 ---
 
-![DEAD TARGET Zombie Offline 4.32.1.2 ÐOD (Infinite Gold + Cash + Ads Removed) APK For Android](https://i2.wp.com/apkhome.net/wp-content/uploads/2020/01/DEAD-TARGET-Zombie-Offline-4.32.1.2-ÐOD-Infinite-Gold-Cash-Ads-Removed.png "DEAD TARGET Zombie Offline 4.32.1.2 ÐOD (Infinite Gold + Cash + Ads Removed) APK For Android")
+![DEAD TARGET Zombie Offline 4.32.1.2  (Infinite Gold + Cash + Ads Removed) APK For Android](https://i2.wp.com/apkhome.net/wp-content/uploads/2020/01/DEAD-TARGET-Zombie-Offline-4.32.1.2--Infinite-Gold-Cash-Ads-Removed.png "DEAD TARGET Zombie Offline 4.32.1.2  (Infinite Gold + Cash + Ads Removed) APK For Android")
 
   
 
-DEAD TARGET Zombie Offline 4.32.1.2 ÐOD (Infinite Gold + Cash + Ads Removed) APK For Android
+DEAD TARGET Zombie Offline 4.32.1.2  (Infinite Gold + Cash + Ads Removed) APK For Android
 
 Keep your fingers on the trigger and shoot the zombies in one of the best first person shooters, DEAD TARGET. Can you understand the key to survival in zombie games?
 
@@ -35,7 +35,7 @@ Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6
 
 **MOD TYPE: Infinite Gold + Cash + Ads Removed**
 
-Download DEAD TARGET Zombie Offline 4.32.1.2 ÐOD (Infinite Gold + Cash + Ads Removed) APK For Android
+Download DEAD TARGET Zombie Offline 4.32.1.2  (Infinite Gold + Cash + Ads Removed) APK For Android
 ======================================================================================================
 
 Additional Information

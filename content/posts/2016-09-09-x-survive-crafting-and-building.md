@@ -1,14 +1,14 @@
 ---
-title: 'X Survive Crafting and Building Survival Game 1.24 ÐOD (Free Crafting) APK For Android'
+title: 'X Survive Crafting and Building Survival Game 1.24  (Free Crafting) APK For Android'
 date: 2020-01-02T05:42:00+01:00
 draft: false
 ---
 
-![X Survive Crafting and Building Survival Game 1.24 ÐOD (Free Crafting) APK For Android](https://i0.wp.com/apkhome.net/wp-content/uploads/2019/11/X-Survive-Crafting-and-Building-Survival-Game-1.24-ÐOD-Free-Crafting.jpg "X Survive Crafting and Building Survival Game 1.24 ÐOD (Free Crafting) APK For Android")
+![X Survive Crafting and Building Survival Game 1.24  (Free Crafting) APK For Android](https://i0.wp.com/apkhome.net/wp-content/uploads/2019/11/X-Survive-Crafting-and-Building-Survival-Game-1.24--Free-Crafting.jpg "X Survive Crafting and Building Survival Game 1.24  (Free Crafting) APK For Android")
 
   
 
-X Survive Crafting and Building Survival Game 1.24 ÐOD (Free Crafting) APK For Android
+X Survive Crafting and Building Survival Game 1.24  (Free Crafting) APK For Android
 
 Welcome to the survival game with a quick build and a building game. What traveler from the galaxy should do after an unfortunate landing on an unknown planet? Answer is ... Take all your futuristic equipment and use it to be creative! Build and build houses from modular building blocks, change the island landscape as you wish. Download today and play this fun survival game offline, anywhere!
 
@@ -26,7 +26,7 @@ Jelly Bean(4.1"4.3.1)- KitKat (4.4"4.4.4)- Lollipop (5.0"5.0.2) - Marshmallow (6
 **MOD TYPE: Free Crafting  
 **
 
-Download X Survive Crafting and Building Survival Game 1.24 ÐOD (Free Crafting) APK For Android
+Download X Survive Crafting and Building Survival Game 1.24  (Free Crafting) APK For Android
 ================================================================================================
 
 Additional Information
